@@ -13,7 +13,7 @@ Dokumen ini memuat istilah khusus semesta cerita, panduan penamaan, pelafalan, s
 | **Mira** | Remaja The Remnant, putri petani & cucu Tetua Desa. Memiliki empati batin mendalam; mengembangkan ilmu herba hingga ke tingkat praktik medis profesional untuk merawat Azariel. | Tokoh Pendukung Utama |
 | **Sang Utusan (*The Envoy*)** | Entitas kosmis asli ciptaan dari Hukum Aethelgard yang kini terkurung menahan dampak Corrosion di ambang batas Vivarium. | Tokoh Sakral / Penjaga Segel |
 | **Malaikat Agung (*Archangels*)** | Entitas spiritual murni ciptaan dari Cahaya, pelaksana titah Sang Pencipta dan eksekutor Pemurnian. | Ordo Surgawi |
-| **The Husks** | Entitas baru hasil metamorfosis manusia kuno di Vivarium yang kehilangan ingatan dan kewarasannya. Memburu bola api Jantung Aethel di Aethelgard demi merebut kembali ingatan mereka. | Antagonis Alam / Faksi Pasca-Manusia |
+| **The Husks** | Cangkang kosong pasca-manusia dari Vivarium berwujud ungu-kelabu tanpa kepala (atau sebagian kepala) yang digantikan bola api ungu berkobar, serta retakan tubuh berisi kobaran api ungu gelap tanpa organ/tulang. Memburu Jantung Aethel untuk mengisi kehampaan diri. | Antagonis Alam / Faksi Pasca-Manusia |
 
 ---
 
@@ -36,4 +36,4 @@ Dokumen ini memuat istilah khusus semesta cerita, panduan penamaan, pelafalan, s
 ## 3. Nomenklatur & Bahasa (Etymology & Linguistics)
 - **Azariel:** Dari bahasa Ibrani *Azar* (Pertolongan) + *El* (Tuhan/Kekuatan Ilahi) — nama pemberian Tetua Desa yang bermakna "Pertolongan Tuhan".
 - **Jantung Aethel:** Nyala api putih-kebiruan yang melambangkan kemurnian tatanan hukum kosmis semesta material Aethelgard.
-- **The Husks:** Kelongsong hampa yang digerakkan oleh rasa lapar akan ingatan masa lalu yang terenggut oleh kekosongan Vivarium.
+- **The Husks:** Secara harfiah berarti "cangkang/kulit kosong"—sosok ungu-kelabu yang kehilangan kepala dan isi organ dalamnya, menyisakan rongga hampa yang menyala dengan api ungu gelap dan digerakkan oleh rasa lapar eksistensial akan ingatan masa lalu.

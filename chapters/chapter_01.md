@@ -92,19 +92,21 @@ Kael tersentak. Seluruh bulu kuduknya berdiri kaku. Naluri pemburu yang mengalir
 
 Dari balik bayang-bayang kabut kelabu di antara dua pohon pinus raksasa, sesuatu melangkah keluar. 
 
-Wujud itu berdiri menjulang setinggi dua meter. Gerakannya tersendat dan patah-patah ganjil di bawah bayangan pohon. Kulitnya kelabu kusam seperti abu tungku mati yang membeku. Dan yang membuat darah Kael membeku adalah kepalanya—makhluk itu tidak memiliki mata ataupun hidung. Wajahnya rata, kelabu, dan dingin, hanya menyisakan hawa beku yang menguar pekat dari kepalanya.
+Wujud itu berdiri menjulang setinggi dua meter dengan siluet menyerupai tubuh manusia, namun gerakannya tersendat dan patah-patah ganjil di bawah bayangan pohon. Kulitnya berwarna ungu-kelabu kusam bagai abu mati yang membeku. Dan yang membuat darah Kael membeku ngeri adalah bagian atas tubuhnya—makhluk itu tidak memiliki kepala utuh; kepalanya telah lenyap, dan rongga kosong di atas pundaknya itu digantikan oleh sebongkah bola api ungu gelap yang berkobar liar tanpa henti.
 
-Monster mengerikan itu belum pernah Kael lihat seumur hidupnya. Ayahnya adalah pemburu terbaik di desa yang mengenalkannya pada setiap jejak serigala buas, taring beruang, dan bahaya rimba malam, tetapi ayahnya tidak pernah menceritakan monster seperti ini. Makhluk itu bukan binatang liar pemburu mangsa biasa, melainkan sosok mimpi buruk berjalan yang menebarkan aura kematian murni.
+Tak hanya itu, di sekujur dada, lengan, dan torsonya menganga retakan-retakan besar yang ganjil. Dari balik celah retakan kulit ungu-kelabu tersebut, sama sekali tidak terlihat daging, organ dalam, maupun tulang yang menempel. Yang ada di balik cangkang retak itu hanyalah rongga hampa pekat yang membakar dengan kobaran api ungu gelap dari dalam tubuhnya—benar-benar perwujudan sebuah cangkang kosong yang digerakkan oleh api kelam.
 
-Makhluk tanpa wajah itu mendongak kaku, meraba udara dingin di puncak tebing seolah mengendus detak jantung kedua anak manusia di hadapannya.
+Monster mengerikan itu belum pernah Kael lihat seumur hidupnya. Ayahnya adalah pemburu terbaik di desa yang mengenalkannya pada setiap jejak serigala buas, taring beruang, dan bahaya rimba malam, tetapi ayahnya tidak pernah menceritakan monster seperti ini. Makhluk itu bukan binatang liar pemburu mangsa biasa, melainkan sosok mimpi buruk berjalan yang menebarkan aura kematian murni dan hawa dingin menusuk.
+
+Kobaran bola api ungu di atas pundaknya bergolak buas saat makhluk itu mendongak kaku, meraba udara dingin di puncak tebing seolah mengendus detak jantung kedua anak manusia di hadapannya.
 
 "Lari, Mira! Lari kembali ke desa!" teriak Kael histeris.
 
-Kael mencabut pisau buru tulangnya, melangkah maju dan membentangkan kedua tangannya di depan Mira. Tubuh anak laki-laki itu gemetar hebat menatap monster abu-abu yang menjulang di depannya, namun kedua kakinya mencengkeram batu cadas dengan keras kepala.
+Kael mencabut pisau buru tulangnya, melangkah maju dan membentangkan kedua tangannya di depan Mira. Tubuh anak laki-laki itu gemetar hebat menatap sosok ungu-kelabu yang menjulang di depannya, namun kedua kakinya mencengkeram batu cadas dengan keras kepala.
 
 "Tidak! Aku tidak mau meninggalkanmu!" jerit Mira menangis. Kakinya lemas bagai lumpuh. Hawa dingin mencekik yang dipancarkan makhluk itu membekukan udara di sekitar mereka hingga sulit bernapas.
 
-Monster kelabu itu menggeram parau. Satu ayunan lengannya yang panjang dan pucat menghempaskan dahan pinus hingga hancur berkeping-keping. Makhluk itu melompat menerjang ke depan dengan cakar kelabunya teracung lurus ke arah leher Kael.
+Makhluk ungu-kelabu itu menggeram parau dari kobaran api di rongga tubuhnya. Satu ayunan lengannya yang panjang dan retak menghempaskan dahan pinus hingga hancur berkeping-keping. Makhluk itu melompat menerjang ke depan dengan cakar ungu-kelabunya teracung lurus ke arah leher Kael.
 
 Malam itu, di atas kubah langit yang membentang luas, tidak ada sebutir pun bintang jatuh yang melintas. Langit malam tetap bisu, dingin, dan sunyi.
 
@@ -122,7 +124,7 @@ Bola-bola api itu **dapat dilihat secara kasat mata oleh semua mata**. Warnanya 
 
 Kilatan cahaya putih-kebiruan itu melesat cepat melintasi pandangan mata Kael dan Mira—begitu menyilaukan, cepat, dan benderang di tengah kegelapan malam, hingga bagi kedua anak yang sejak tadi menantikan dongeng para pemburu, kilatan itu tampak persis seperti **sebutir bintang jatuh yang turun dari langit tepat ke hadapan mereka**.
 
-Hawa dingin kelam yang dibawa monster abu-abu itu seketika tersapu bersih oleh gelombang kehangatan sakral yang meledak dari api putih-kebiruan tersebut.
+Hawa dingin kelam yang dibawa makhluk ungu-kelabu itu seketika tersapu bersih oleh gelombang kehangatan sakral yang meledak dari api putih-kebiruan tersebut.
 
 Kael dan Mira ternganga terpaku. Bola-bola api Jantung Aethel itu membumbung ke udara lalu berpusar kencang tepat di antara mereka dan monster mengerikan itu. Lidah-lidah apinya memancarkan cahaya putih-kebiruan yang menyinari seluruh puncak Tebing Pinus layaknya fajar di tengah malam. Dari pusaran bola api putih berselubung semburat biru itulah, partikel-partikel cahaya memadat dengan kecepatan yang menakjubkan—membentuk kerangka tubuh, garis otot, dan raga seorang manusia dewasa muda.
 
@@ -132,7 +134,7 @@ Di hadapan kedua anak itu, berdiri tegak sesosok pria muda. Rupa dan warnanya me
 
 Pendar redup putih kebiruan di matanya terpaku tanpa arah, seolah dunia material di sekelilingnya adalah hamparan asing yang belum terpahami. Tanpa baju zirah ataupun perhiasan pelindung, ia hanya berdiri mematung di atas cadas. Bibirnya terkatup rapat tanpa getaran suara bahasa apa pun, sementara tatapannya yang datar sempat menyapu dingin wajah ketakutan Kael dan Mira. Namun ketika pandangan mereka beradu, di balik keheningan tanpa kata itu merembes aura kelembutan yang menyejukkan sanubari kedua anak tersebut.
 
-Tetapi, ketika monster abu-abu itu kembali melolong murka dan menerjang dengan cakar kelabunya untuk meremukkan anak-anak di belakangnya, sebuah getaran insting menyentak dada sang pemuda.
+Tetapi, ketika sosok cangkang ungu-kelabu itu kembali melolong buas dari kobaran apinya dan menerjang dengan cakar retaknya untuk meremukkan anak-anak di belakangnya, sebuah getaran insting menyentak dada sang pemuda.
 
 Tanpa senjata, tanpa ilmu yang ia ingat, dan tanpa kata-kata, pria muda itu melangkah maju.
 
@@ -140,7 +142,7 @@ Ia **memasang badannya** tepat di hadapan Kael dan Mira.
 
 *BUMMM!*
 
-Cakaran kelabu monster itu menghantam telapak tangan telanjang pemuda itu. Tabrakan antara hawa dingin kehampaan dan kekuatan cahaya hangat melepaskan gelombang kejut yang menghempaskan monster kelabu itu ke belakang hingga menghantam tebing batu pinus. Raungan melengking penuh kesakitan menggema dari rongga kepala makhluk itu sebelum tubuh kelabunya pecah menjadi kabut asap yang melarikan diri ke dalam kegelapan rimba.
+Cakaran ungu-kelabu monster itu menghantam telapak tangan telanjang pemuda itu. Tabrakan antara hawa dingin kehampaan dan kekuatan cahaya hangat melepaskan gelombang kejut yang menghempaskan monster ungu-kelabu itu ke belakang hingga menghantam tebing batu pinus. Raungan melengking penuh kesakitan meledak dari kobaran bola api ungu di atas pundaknya sebelum tubuh cangkang itu pecah menjadi kabut abu keunguan yang melarikan diri ke dalam kegelapan rimba.
 
 Ancaman itu lenyap seketika, menyisakan keheningan yang membekukan darah.
 
@@ -180,7 +182,7 @@ Pintu rumah Kael terbanting terbuka lebar. Ayahnya—seorang pemburu bertubuh li
 
 "Kael! Apa yang terjadi?! Di mana Mira?!" seru sang ayah dengan rahang mengeras tegang.
 
-"Di Tebing Pinus, Ayah!" Kael terengah-engah, air mata ketakutannya tumpah saat menunjuk ke puncak bukit. "Ada monster abu-abu... ada pemuda asing yang menolong kami, tapi sekarang dia pingsan dan sekarat menahan serangan monster itu! Cepat, tolong mereka!"
+"Di Tebing Pinus, Ayah!" Kael terengah-engah, air mata ketakutannya tumpah saat menunjuk ke puncak bukit. "Ada monster ungu-kelabu yang tubuhnya terbakar api... ada pemuda asing yang menolong kami, tapi sekarang dia pingsan dan sekarat menahan serangan monster itu! Cepat, tolong mereka!"
 
 "Ayo semuanya, ke Tebing Pinus!" seru ayah Kael memberi aba-aba kepada warga desa.
 

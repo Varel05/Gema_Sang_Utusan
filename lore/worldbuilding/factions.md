@@ -27,10 +27,16 @@ Dokumen ini memuat catatan faksi, kelompok sosial, dan ordo yang membentuk dinam
 
 ### B. The Husks (Entitas yang Terkorosi)
 - **Proses Lahir:** Di dalam kehampaan Vivarium yang nir-hukum dan memiliki aliran waktu liar, kedua faksi manusia kuno terpapar fenomena **Corrosion**.
-- **Dampak Karakteristik:**
+- **Karakteristik Wujud & Anatomi (Perwujudan Cangkang Kosong):**
+  - **Siluet & Postur:** Menyerupai proporsi tubuh manusia yang menjulang tinggi, namun gerakannya tersendat kaku dan patah-patah.
+  - **Warna Raga:** Berwarna **ungu-kelabu** kusam (*ashen violet*), layaknya abu mati yang terkontaminasi kehampaan.
+  - **Kondisi Kepala & Kobaran Api:** Tubuhnya **tidak memiliki kepala utuh atau hanya menyisakan sebagian tengkorak**. Bagian kepala yang hilang digantikan secara ganjil oleh **bola api ungu gelap yang berkobar liar**.
+  - **Retakan Tubuh & Ketiadaan Organ:** Terdapat celah-celah dan retakan menganga di sekujur kulit dan torsonya. Dari balik retakan itu, **sama sekali tidak terlihat organ dalam, daging, maupun tulang yang menempel**; yang ada hanyalah rongga hampa berisi **api ungu gelap yang berkobar membakar dari dalam**.
+  - **Makna Simbolis:** Wujud fisiknya secara harfiah adalah **cangkang kosong** (*The Husk*)—wadah kemanusiaan yang telah musnah dan terkikis habis oleh ketiadaan hukum alam Vivarium, digerakkan semata-mata oleh kobaran api kehampaan yang lapar akan memori Aethelgard.
+- **Dampak Psikologis & Eksistensial:**
   - Kehilangan seluruh ingatan, nama, garis keturunan, dan kewarasan manusiawi mereka.
-  - Jiwa dan akal budi lama mereka terkikis habis hingga menjadi "cangkang/kelongsong" kosong (**The Husks**).
-  - Terbebas dari hukum biologi Aethelgard, mereka bermutasi menjadi entitas baru yang dingin, liar, dan menyesuaikan diri dengan anomali Vivarium.
+  - Mengembara dengan rasa lapar eksistensial, memburu getaran dan pendaran pecahan **Jantung Aethel** demi mengisi rongga hampa di dalam diri mereka.
+  - Terbebas dari hukum biologi Aethelgard, mereka bermutasi menjadi predator metafisik yang membawa hawa dingin beku kehampaan ke mana pun mereka melangkah.
 
 ---
 
