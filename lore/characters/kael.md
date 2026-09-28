@@ -11,22 +11,26 @@
 - **Usia:** 
   - **Awal Cerita (Bab 1):** Remaja awal (~12–13 tahun saat insiden pertama kemunculan Azariel).
   - **Fase Akhir Desa / Pengembaraan:** Usia akhir remaja (~18–19 tahun).
-- **Status Keluarga:** Putra dari seorang pemburu tangguh di desa agraris pelosok kadipaten.
+- **Status Keluarga:** Putra dari **Bran**, pemburu kawakan sekaligus ketua regu patroli perbatasan desa agraris pelosok kadipaten.
 - **Ciri Fisik Utama:** Bertubuh atletis, tegap, liat, dan tangkas berkat latihan fisik tanpa henti. Kulit sawo matang khas pengelana alam bebas, mata cokelat tajam yang berbinar penuh kewaspadaan dan tekad pelindung.
 - **Gaya Busana & Senjata:**
   - Mengenakan pakaian berburu yang diperkuat pelindung kulit tebal pada lengan dan dada.
-  - Membawa pedang tempaan berkualitas yang ia rawat dengan disiplin tinggi.
+  - Membawa pedang tempaan berkualitas tinggi—pedang tempur lama milik ayahnya yang diwariskan dari peti besi di gudang—yang selalu ia rawat dengan disiplin ketat.
 
 ---
 
 ## 2. Latar Belakang & Pembelajaran (Backstory)
 - Tumbuh besar di desa agraris pelosok perbatasan kadipaten bersama Mira dan keluarganya.
-- **Peran di Bab 1:** Saat The Husk menyerang dan Azariel yang baru memadat dari tanah roboh pingsan, Kael segera berlari ke desa memanggil bantuan. **Ayah Kael** memimpin warga menuju lokasi dan membopong tubuh pemuda pingsan tersebut pulang ke rumah Tetua Desa.
+- **Peran di Bab 1 & 2:** 
+  - Saat The Husk menyerang di Tebing Pinus, Kael berlari kalap ke desa membangunkan warga. Ayahnya (**Bran**) membopong Azariel ke rumah Tetua dan memimpin warga mengamankan lokasi.
+  - Di musyawarah malam alun-alun (Bab 2), Bran ditunjuk Tetua sebagai **ketua regu patroli perbatasan desa**.
+  - Saat Kael mengajukan diri ikut berpatroli, Tetua melarangnya secara halus dan memberinya mandat kehormatan: *"Tugasmu bukan di hutan, Kael... tugasmu adalah menjaga mereka (Mira dan Azariel)."* Hal ini mengukuhkan sumpah seumur hidupnya sebagai perisai pelindung keduanya.
 - **Kepolosan & Pandangan Terhadap Azariel:**
   - Berbeda dari Tetua Desa yang memandang Azariel sebagai misteri sakral, Kael dengan kepolosan anak-anaknya **menganggap Azariel hanyalah seorang pemuda manusia biasa** yang baik hati namun bernasib malang dan tak berdaya.
   - Kael menganggap Azariel seperti abang angkat yang bisu dan lemah, menanamkan tekad mutlak untuk melindunginya.
-- **Dedikasi Ilmu Pedang:** 
-  Semenjak kejadian tersebut, Kael mendedikasikan hidupnya untuk **mendalami ilmu pedang dan jalan kesatria (*swordsmanship & chivalry*)** agar ia bisa menjadi perisai bagi Azariel dan Mira.
+- **Pelatihan Tempur Bersama Bran & Dedikasi Ilmu Pedang:** 
+  - Semenjak insiden malam itu, ayahnya (**Bran**) mulai melatih para pemuda desa dan Kael seni bertarung untuk melindungi desa.
+  - Kael menerima tempaan disiplin paling keras dari sang ayah, mendedikasikan hidupnya untuk **mendalami ilmu pedang dan seni pertahanan kesatria (*swordsmanship & combat arts*)** agar ia bisa menjadi perisai bagi Azariel dan Mira.
 
 ---
 
