@@ -204,38 +204,10 @@ Dikelilingi kobaran obor warga yang berbaris rapat mengamankan jalan, rombongan 
 
 ---
 
-Di dalam bilik belakang kediaman tetua yang beralaskan selimut wol tebal, tubuh pemuda asing itu dibaringkan dengan hati-hati. Ayah Mira bersama puluhan warga desa yang cemas berkumpul menunggu di pelataran dan teras depan, sementara sang Tetua Desa duduk di tepi pembaringan kayu di bilik dalam, menyeka pelipis sang pemuda dengan kain basah yang telah dicelup rebusan herba penenang.
+Tiba di pelataran rumah panggung berukir yang menghadap langsung ke alun-alun desa, sang Tetua Desa yang telah terjaga oleh kegaduhan malam segera menyambut mereka di ambang pintu. Tanpa membuang waktu sedetik pun, ayah Kael membopong tubuh pemuda pingsan itu melintasi serambi menuju bilik belakang, membaringkannya di atas pembaringan beralaskan selimut wol tebal. Mira yang matanya masih sembap langsung bergegas menyusul, mengambil mangkuk rebusan herba penenang dan kain kompres basah untuk mendampingi kakeknya menstabilkan napas sang penyelamat yang kian menipis.
 
-Namun, saat sang tetua menyibak helaian rambut putih berkilau semburat biru yang menutupi dahi pemuda itu, jemari pria tua berjanggut perak tersebut mendadak kaku.
+Namun di luar, puluhan warga yang berbondong-bondong membawa obor, kapak, dan garpu rumput sama sekali tidak membubarkan diri. Tanah lapang alun-alun di hadapan kediaman Tetua justru kian padat dan riuh oleh kepanikan yang mendidih. Aroma ketakutan dan pertanyaan yang tak terjawab menyebar cepat di antara para pembajak ladang dan pemelihara ternak.
 
-Napas sang tetua tercekat di tenggorokan.
+Pintu kayu jati kediaman Tetua ditutup dari dalam demi memberi ketenangan bagi perawatan darurat sang pemuda, menyisakan Kael yang tertahan di teras luar dengan kedua lutut yang masih berlumur tanah cadas basah dan telapak tangan tergores semak duri.
 
-Matanya yang renta melebar menatap pahatan wajah, lekuk tulang pipi, dan garis simetris proporsi tubuh sang pemuda. Ciri-ciri fisik yang teramat agung dan abadi... persis seperti yang tertulis dalam gulungan lisan nenek moyang kaum *The Remnant* tentang rupa Sang Utusan di era sebelum Hukuman Langit.
-
-Sang kakek menoleh memandang cucunya, Mira, yang sedang duduk bersimpuh di tepi ranjang memegangi tangan dingin pemuda itu dengan cemas, dan Kael yang berdiri tegap di ambang pintu bilik dengan tatapan yang tak pernah lepas dari pemuda tersebut.
-
-Kedua anak itu memandang sang pemuda dengan ketulusan yang murni—menganggapnya sebagai seorang kakak manusia biasa yang rapuh dan butuh diselamatkan.
-
-Sang tetua menarik napas panjang, menelan keterkejutan kosmis yang mengguncang dadanya. Ia tahu persis: jika rahasia ini bocor keluar, jika mata-mata kerajaan di seberang perbatasan atau para bangsawan kadipaten mencium keberadaan sosok berwujud Sang Utusan di desa terpencil ini, lembah damai mereka akan seketika terseret ke dalam neraka perang antar-kerajaan yang ingin merebut kekuatan purba ini.
-
-Sosok ini harus disembunyikan. Sosok ini harus dirawat, dijaga, dan diajari cara hidup sebagai manusia fana hingga ia benar-benar siap.
-
-"Kek..." suara Mira yang lirih membuyarkan lamunan sang kakek. "Apakah dia akan selamat?"
-
-Sang tetua tersenyum lembut, menyembunyikan badai kekhawatiran di balik kerutan wajahnya yang bijak. Tangannya yang hangat menyentuh dahi sang pemuda seraya merapalkan doa perlindungan kepada Sang Pencipta.
-
-"Dia akan selamat, Mira. Detak jantungnya mulai teratur. Raga dan jiwanya hanya kelelahan menahan benturan besar."
-
-"Kek..." Kael melangkah mendekat ke tepi ranjang, menatap wajah tenang pemuda pingsan itu dengan tatapan takzim. "Apakah dia malaikat bintang jatuh yang turun membawa pertolongan Tuhan untuk kami?"
-
-Sang tetua tersenyum getir sekaligus haru, menatap kedua anak yang masih begitu murni. Mengingat kembali bagaimana Jantung Aethel menyahut tekat dan doa mereka dari celah cadas purba, sebuah nama arkais meluncur pelan dan khidmat dari bibir sang tetua:
-
-"Mulai malam ini, kita akan memanggilnya **Azariel**."
-
-"Azariel..." bisik Mira pelan, merasakan kehangatan yang perlahan kembali mengalir di ujung jemari pemuda itu.
-
-"Artinya *Pertolongan Tuhan*," lanjut sang kakek dengan suara berbisik, menatap lekat kedua anak tersebut. "Dan rahasia tentang bagaimana dia ditemukan di Tebing Pinus... tidak boleh keluar dari bilik ini. Mengerti, Kael? Mira?"
-
-Kael mengangguk mantap, tangannya mengepal erat di sisi tubuhnya. Menatap raga tak berdaya yang terbaring di ranjang kayu itu, sebuah janji terpatri tanpa kata di dalam dada anak pemburu tersebut: *Kael tidak akan pernah membiarkan Azariel terluka lagi. Ia akan berlatih menjadi perisai dan mata pedang bagi pemuda ini.*
-
-Di luar jendela bilik, malam merayap menuju fajar di atas lembah agraris di tepi rimba itu. Namun di atas ranjang kayu kediaman tetua, sebutir bara purba telah menyala kembali di tengah dekapan kasih manusia biasa—menunggu waktu untuk bangkit menuntun semesta Aethelgard.
+Napas anak pemburu berusia dua belas tahun itu masih tersengal menahan getaran syok yang meremukkan dadanya. Namun sebelum ia sempat menenangkan diri, puluhan pasang mata orang dewasa di alun-alun seketika berbalik mengunci sosoknya. Sorotan puluhan obor yang berkobar menari liar di udara malam, menuntut pertanggungjawaban dan jawaban atas teriakan maut yang baru saja mengguncang kedamaian lembah mereka.
