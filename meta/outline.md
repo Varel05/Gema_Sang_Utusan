@@ -28,7 +28,8 @@ Dokumen ini memuat rencana alur besar, tema inti, serta target naratif per babak
   - Teriakan Kael membangunkan warga desa; ayah Kael memimpin warga membawa obor ke tebing dan membopong Azariel ke rumah tetua desa.
   - Tetua Desa menamainya **Azariel** dan menyembunyikannya dari kerajaan perbatasan. Kael dan Mira bersumpah menjadi pelindung bagi Azariel.
 - **Fase Pertumbuhan (Bertahun-Tahun di Desa):** 
-  - Mereka bertiga tumbuh bersama hingga Kael dan Mira menginjak **usia akhir remaja (~18–19 tahun)**: Azariel belajar bahasa dan adab manusia, Kael mendalami ilmu pedang kesatria demi menjadi tameng Azariel, dan Mira menguasai praktik medis profesional.
+  - Mereka bertiga tumbuh bersama hingga Kael dan Mira menginjak **usia akhir remaja (~18–19 tahun)**: Azariel belajar bahasa dan adab manusia fana; Mira menguasai praktik medis profesional; Bran melatih para pemuda desa dan menggembleng Kael dalam seni bela diri pedang.
+  - Di fase ini (Bab 3 ke atas), backstory Bran sebagai mantan prajurit elit garda utama kadipaten mulai terkuak, bersamaan dengan perlengkapan tempur lamanya di gudang yang nantinya diserahkan kepada Kael saat pengembaraan dimulai.
 
 ### Babak 2: Pengembaraan Menyerap Jantung Aethel (Act II: Gathering the Shards)
 - **Keberangkatan:** Saat ancaman The Husks kian mendesak dan Kael-Mira telah matang di usia akhir remaja, pengembaraan dimulai.
@@ -47,6 +48,7 @@ Dokumen ini memuat rencana alur besar, tema inti, serta target naratif per babak
 | Bab | Judul / Fokus Adegan | Sudut Pandang (POV) | Tujuan Naratif Utama | Status |
 | :--- | :--- | :--- | :--- | :--- |
 | `chapter_01` | **Bara di Tepi Rimba** | Kael & Mira kecil (~12–13 tahun) | Dongeng Sang Utusan dari kakek Mira di malam hari; ajakan Kael ke Tebing Pinus; kemunculan monster kelabu; tekat hening Kael dijawab Jantung Aethel; pasang badan pria muda Azariel lalu ambruk; kata pertama "Mira"; warga desa terbangun berbondong-bondong menolong; penamaan Azariel oleh tetua. | Selesai Draft |
-| `chapter_02` | **Bilik Rahasia & Tahun-Tahun yang Bertumbuh** | Azariel, Mira, & Kael | Pagi hari: ayah Kael & warga menamai fenomena monster sebagai The Husk; Tetua menetapkan kerahasiaan identitas Azariel dari kerajaan perbatasan; tahun-tahun pembelajaran di desa hingga usia akhir remaja (~18-19 tahun); Kael mendalami pedang kesatria dan Mira mendalami ilmu medis. | Rencana Berikutnya |
+| `chapter_02` | **Cangkang di Balik Kabut** | Kael & Warga Lembah | Rapat darurat malam yang sama di alun-alun depan rumah Tetua; kesaksian Kael; penyangkalan dan kebingungan warga; pembelaan tegas ayah Kael; kemunculan Tetua Desa menyingkap nama, hakikat, dan anatomi The Husk; mandat penjagaan desa serta kerahasiaan identitas Azariel. | Selesai Draft |
+| `chapter_03` | **Bilik Rahasia & Tahun-Tahun yang Bertumbuh** | Azariel, Mira, & Kael | Masa pemulihan dan bertahun-tahun pembelajaran di desa hingga usia akhir remaja (~18–19 tahun); Azariel belajar bahasa dan adab manusia fana; Bran melatih para pemuda desa dan Kael seni bertarung untuk pertahanan desa; penyingkapan masa lalu Bran sebagai mantan garda kadipaten dan warisan perlengkapan tempur di gudang; Mira mendalami praktik medis. | Rencana Berikutnya |
 | ... | ... | ... | ... | Rencana |
 | `chapter_klimaks` | **Bara di Balik Abu Fana** | Azariel, Kael, & Mira | Bab Klimaks: Penentuan di celah Vivarium; rekonsiliasi antara Abu Fana dan Bara Kemanusiaan. | Rencana Babak 3 |
