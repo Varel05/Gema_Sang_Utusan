@@ -9,7 +9,7 @@
 ## 1. Identitas & Ciri Fisik
 - **Nama Lengkap:** Bran
 - **Status Keluarga:** 
-  - Suami dari seorang wanita desa bersahaja (ibu Kael).
+  - Suami dari **Elora**, wanita desa bersahaja yang mengelola arsip dan perpustakaan kecil desa.
   - Ayah kandung dari **Kael**.
 - **Usia:** Paruh baya (~40-an tahun pada awal cerita).
 - **Ciri Fisik Utama:** 
@@ -30,7 +30,7 @@
 - **Mantan Garda Utama Kadipaten (*Former Elite Vanguard of the Duchy*):**
   - Pada masa mudanya, Bran adalah prajurit elit garda utama di kadipaten pusat yang menaungi wilayah perbatasan ini. Ia kenyang akan disiplin militer resmi, taktik formasi tempur, serta seni bela diri dan ilmu pedang tingkat tinggi.
 - **Pernikahan & Memilih Hidup Tenang:**
-  - Jenuh dengan intrik politik militer kadipaten dan kebrutalan medan perang, Bran jatuh cinta pada seorang gadis desa yang bersahaja (ibu Kael). Ia memutuskan pensiun dari dinas ketentaraan secara terhormat dan memilih menetap di desa terpencil ini untuk membangun keluarga.
+  - Jenuh dengan intrik politik militer kadipaten dan kebrutalan medan perang, Bran jatuh cinta pada seorang gadis desa yang bersahaja dan gemar merawat buku-buku catatan desa bernama **Elora**. Ia memutuskan pensiun dari dinas ketentaraan secara terhormat dan memilih menetap di desa terpencil ini untuk membangun keluarga.
 - **Penjelasan Keahlian Berburu & Bertarung:**
   - Kemampuannya melacak jejak binatang, bertahan hidup di hutan belantara, dan ketenangannya di hadapan bahaya bukanlah bakat alamiah semata, melainkan buah dari latihan disiplin militer masa lalunya.
 - **Gudang Rahasia & Perlengkapan Lama:**
@@ -60,6 +60,6 @@
 
 ## 5. Hubungan & Dinamika Relasi
 - **Kael:** Putra tercinta yang sangat ia banggakan. Bran mendidik Kael agar tidak hanya tangkas menggunakan pedang, tetapi juga memiliki ketenangan batin seorang pelindung sejati.
-- **Istri (Ibu Kael):** Tempat berlabuhnya kedamaian hati Bran; alasan utamanya meninggalkan gemerlap dinas militer demi kehidupan bersahaja di desa.
+- **Elora (Istri / Ibu Kael):** Tempat berlabuhnya kedamaian hati Bran; wanita lembut pengelola perpustakaan desa yang menjadi alasan utamanya meninggalkan gemerlap dinas militer demi kehidupan bersahaja di desa.
 - **Tetua Desa:** Sekutu terpercaya dalam urusan keamanan desa; Tetua menghargai keahlian Bran tanpa pernah mengungkit masa lalu militernya di depan umum.
 - **Vane:** Hubungan dingin; Bran enggan tunduk pada pengaruh finansial Vane, sementara Vane segan pada ketegasan fisik dan pengaruh Bran di kalangan para pemuda dan pemburu desa.

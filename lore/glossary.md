@@ -16,6 +16,7 @@ Dokumen ini memuat istilah khusus semesta cerita, panduan penamaan, pelafalan, s
 | **The Husks** | Cangkang kosong pasca-manusia dari Vivarium berwujud ungu-kelabu tanpa kepala (atau sebagian kepala) yang digantikan bola api ungu berkobar, serta retakan tubuh berisi kobaran api ungu gelap tanpa organ/tulang. Memburu Jantung Aethel untuk mengisi kehampaan diri. | Antagonis Alam / Faksi Pasca-Manusia |
 | **Vane** | Juragan kebun anggur kaya yang angkuh dan berpengaruh besar dalam perekonomian desa. Mengincar posisi pemimpin desa dengan memanfaatkan kekosongan pewaris dewasa setelah wafatnya putri Tetua (ibu Mira), memicu konflik dingin dengan keluarga Tetua. | Tokoh Pendukung / Oposisi Internal Desa |
 | **Bran** | Ayah Kael, ketua regu patroli perbatasan dan pelatih tempur pemuda desa. Mantan prajurit garda utama kadipaten yang memilih hidup tenang di desa sebagai pemburu; menyimpan senjata dan zirah lamanya di gudang untuk diwariskan ke Kael *(backstory baru diungkap mulai Bab 3)*. | Tokoh Pendukung / Pelindung Desa |
+| **Elora** | Ibu Kael dan istri Bran; wanita desa yang bersahaja, lembut, dan telaten mengelola arsip serta perpustakaan kecil desa. Menjadi sosok yang sering berinteraksi dengan Azariel terkait peminjaman buku-buku catatan peradaban. | Tokoh Pendukung / Pustakawan Desa |
 
 ---
 

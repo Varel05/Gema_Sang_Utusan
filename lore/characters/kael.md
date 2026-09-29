@@ -11,7 +11,7 @@
 - **Usia:** 
   - **Awal Cerita (Bab 1):** Remaja awal (~12–13 tahun saat insiden pertama kemunculan Azariel).
   - **Fase Akhir Desa / Pengembaraan:** Usia akhir remaja (~18–19 tahun).
-- **Status Keluarga:** Putra dari **Bran**, pemburu kawakan sekaligus ketua regu patroli perbatasan desa agraris pelosok kadipaten.
+- **Status Keluarga:** Putra dari **Bran** (pemburu kawakan & ketua patroli desa) dan **Elora** (penjaga perpustakaan/arsip desa).
 - **Ciri Fisik Utama:** Bertubuh atletis, tegap, liat, dan tangkas berkat latihan fisik tanpa henti. Kulit sawo matang khas pengelana alam bebas, mata cokelat tajam yang berbinar penuh kewaspadaan dan tekad pelindung.
 - **Gaya Busana & Senjata:**
   - Mengenakan pakaian berburu yang diperkuat pelindung kulit tebal pada lengan dan dada.
@@ -49,7 +49,8 @@
 ---
 
 ## 5. Hubungan & Dinamika Relasi
-- **Dengan Ayahnya:** Sangat menghormati sang ayah, pemburu tangguh yang membopong Azariel saat pertama kali ditemukan pingsan di tepi hutan.
+- **Dengan Ayahnya (Bran):** Sangat menghormati sang ayah, pemburu tangguh yang membopong Azariel saat pertama kali ditemukan pingsan di tepi hutan, sekaligus mentor tempur yang mendidiknya dengan disiplin keras.
+- **Dengan Ibunya (Elora):** Sangat menyayangi sang ibu yang berhati lembut dan pengelola perpustakaan desa; Elora adalah penyejuk hati Kael yang kerap menenangkannya dan merawatnya seusai latihan fisik yang keras.
 - **Dengan Azariel:** Sahabat karib dan saudara angkat; Kael menganggap Azariel pemuda biasa yang harus ia jaga keselamatannya.
 - **Dengan Mira:** Belahan jiwa persahabatan sejak kecil; saling melengkapi antara pedang Kael dan keahlian medis Mira.
 
