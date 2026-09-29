@@ -38,9 +38,11 @@ Dokumen ini memuat rencana alur besar, tema inti, serta target naratif per babak
 
 ### Babak 3: Klimaks & Rekonsiliasi Kosmis (Act III: The New Covenant)
 - **Bab Klimaks: *Bara di Balik Abu Fana***
-  - Pertarungan penentuan di batas celah perbatasan Vivarium untuk menyegel celah dan menyelamatkan kaum The Remnant.
-  - Malaikat memandang sisa-sisa esensi itu hanyalah *Abu Fana*, namun tekad cinta kasih Azariel, Kael, dan Mira membuktikan bahwa itu adalah *Bara Hidup* yang memulihkan semesta.
-- **Resolusi:** Azariel menjadi sosok pelindung sejati yang paripurna—mengetahui cinta dan kepedihan manusia berkat ketulusan Kael dan Mira yang selalu menganggapnya manusia biasa.
+  - Ketika seluruh pecahan Jantung Aethelgard berhasil disatukan kembali oleh Azariel, getaran kembalinya pusaka purba ini menembus takhta langit dan memicu turunnya **Sang Malaikat Agung** (satu-satunya sosok eksekutor Pemurnian yang dirajut dari Cahaya).
+  - Terdorong oleh kekhawatiran dan trauma masa lalunya atas kebobrokan perang dan kehancuran peradaban kuno, Sang Malaikat Agung memandang kebangkitan kembali kekuatan ini sebagai ancaman berbahaya yang dapat memicu **kemungkinan Hukuman Langit Kedua**.
+  - **Konfrontasi Puncak:** Azariel berhadapan langsung satu lawan satu dengan Sang Malaikat Agung di ambang celah Vivarium. Sekali lagi, Azariel berdiri pasang badan membentengi Aethelgard dan kaum manusia.
+  - Namun kali ini, Azariel bertarung bukan sebagai entitas hukum yang kaku, melainkan sebagai sosok pelindung sejati yang telah merasakan cinta, rasa sakit, dan ketulusan fana dari Kael dan Mira. Ia membuktikan bahwa apa yang dicap sang Malaikat sebagai *Abu Fana* sesungguhnya adalah *Bara Hidup* yang memulihkan dan layak dipertahankan di muka bumi.
+- **Resolusi:** Rekonsiliasi kosmis; Sang Malaikat Agung mengurungkan Hukuman Langit Kedua dan mengakui keabsahan tatanan baru. Azariel menjadi pelindung paripurna yang menyatukan keluhuran langit dan kehangatan kemanusiaan.
 
 ---
 
@@ -49,6 +51,6 @@ Dokumen ini memuat rencana alur besar, tema inti, serta target naratif per babak
 | :--- | :--- | :--- | :--- | :--- |
 | `chapter_01` | **Bara di Tepi Rimba** | Kael & Mira kecil (~12–13 tahun) | Dongeng Sang Utusan dari kakek Mira di malam hari; ajakan Kael ke Tebing Pinus; kemunculan monster kelabu; tekat hening Kael dijawab Jantung Aethel; pasang badan pria muda Azariel lalu ambruk; kata pertama "Mira"; warga desa terbangun berbondong-bondong menolong; penamaan Azariel oleh tetua. | Selesai Draft |
 | `chapter_02` | **Cangkang di Balik Kabut** | Kael & Warga Lembah | Rapat darurat malam yang sama di alun-alun depan rumah Tetua; kesaksian Kael; penyangkalan dan kebingungan warga; pembelaan tegas ayah Kael; kemunculan Tetua Desa menyingkap nama, hakikat, dan anatomi The Husk; mandat penjagaan desa serta kerahasiaan identitas Azariel. | Selesai Draft |
-| `chapter_03` | **Bilik Rahasia & Tahun-Tahun yang Bertumbuh** | Azariel, Mira, & Kael | Masa pemulihan dan bertahun-tahun pembelajaran di desa hingga usia akhir remaja (~18–19 tahun); Azariel belajar bahasa dan adab manusia fana; Bran melatih para pemuda desa dan Kael seni bertarung untuk pertahanan desa; penyingkapan masa lalu Bran sebagai mantan garda kadipaten dan warisan perlengkapan tempur di gudang; Mira mendalami praktik medis. | Rencana Berikutnya |
+| `chapter_03` | **Napas Pertama di Tanah Fana** | Azariel (POV) | Bangun dengan disorientasi keesokan paginya akibat mimpi buruk kosmis pemurnian langit tanpa nama tokoh; adaptasi raga fana Azariel; asuhan telaten & kedewasaan Mira; celoteh & tekad pelindung Kael; rutinitas latihan desa oleh Bran; dan tumbuhnya ikatan persaudaraan hangat di beranda. | Selesai Draft |
 | ... | ... | ... | ... | Rencana |
-| `chapter_klimaks` | **Bara di Balik Abu Fana** | Azariel, Kael, & Mira | Bab Klimaks: Penentuan di celah Vivarium; rekonsiliasi antara Abu Fana dan Bara Kemanusiaan. | Rencana Babak 3 |
+| `chapter_klimaks` | **Bara di Balik Abu Fana** | Azariel, Kael, & Mira | Bab Klimaks: Penyatuan utuh Jantung Aethelgard memicu turunnya Sang Malaikat Agung (1 sosok); konfrontasi puncak Azariel demi melindungi Aethelgard dari potensi Hukuman Langit Kedua; pembuktian Bara Kemanusiaan atas kepasifan Abu Fana. | Rencana Babak 3 |

@@ -37,7 +37,7 @@
 
 ## 4. Hubungan & Dinamika Relasi
 - **Dengan Sang Pencipta:** Ketundukan mutlak, meski tindakannya mengungsikan manusia ke Vivarium adalah bentuk pembangkangan belas kasih (*compassionate rebellion*).
-- **Dengan Malaikat Agung:** Setara dalam hierarki, berbeda substansi (Hukum vs Cahaya). Malaikat memandang Pemurnian sebagai keharusan suci, dan memendam sisa esensinya (Abu Fana) di perut bumi.
+- **Dengan Sang Malaikat Agung:** Setara dalam hierarki kosmis, namun berbeda substansi dasar (Hukum Aethelgard vs Cahaya Surgawi). Sang Malaikat Agung adalah 1 sosok eksekutor Pemurnian yang memandang pembersihan semesta sebagai keharusan suci, dan memendam sisa esensinya (Abu Fana) di perut bumi karena buta terhadap memori duniawi di dalamnya.
 - **Dengan Penghuni Vivarium (The Husks):** Menyaksikan faksi manusia masa lalu perlahan hancur kewarasannya oleh **Corrosion** hingga bertransformasi menjadi **The Husks**.
 - **Dengan The Remnant di Aethelgard:** Meninggalkan warisan ajaran tauhid murni yang kini menjadi pelindung peradaban baru mereka di permukaan Aethelgard.
 

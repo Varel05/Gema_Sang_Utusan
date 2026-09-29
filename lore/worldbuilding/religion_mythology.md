@@ -9,10 +9,11 @@ Semesta ini berlandaskan **Monoteisme Mutlak**:
 - **Sang Pencipta (The Creator / Tuhan Yang Maha Esa):**
   - Sumber dari segala eksistensi, hukum alam semesta, dan realitas mutlak.
   - Memiliki kehendak penuh atas keberlangsungan atau siklus pembersihan semesta fana.
-- **Para Malaikat Agung (Archangels):**
-  - Entitas spiritual murni yang **diciptakan dari Cahaya**.
-  - Bertindak sebagai pembawa firman dan eksekutor kehendak Ilahi.
+- **Sang Malaikat Agung (The Archangel):**
+  - **Satu sosok tunggal** entitas spiritual murni tertinggi yang **diciptakan dari Cahaya**.
+  - Bertindak sebagai pembawa firman dan eksekutor tunggal kehendak Ilahi dalam menegakkan pembersihan kosmis.
   - Menyebut peristiwa pembersihan semesta sebagai **"Pemurnian" (*Purification*)**.
+  - Memiliki kekhawatiran dan memori traumatis mendalam terhadap kekacauan dan kebobrokan peradaban masa lalu yang merusak bumi Aethelgard.
 - **Sang Utusan Khusus (The Envoy):**
   - **Bukan manusia**, melainkan entitas kosmis luhur berderajat setara malaikat.
   - **Hakikat Penciptaan:** Diciptakan langsung dari **Hukum Aethelgard itu sendiri** (personifikasi tatanan semesta material).
@@ -51,11 +52,14 @@ Menjelang pemusnahan total, Sang Utusan memindahkan kedua faksi yang bertikai ke
 Sesaat setelah Katastrofisme Pertama mereda di Aethelgard:
 - Malaikat Agung menemukan sisa ingatan dan pecahan kekuatan dari Sang Utusan yang tertinggal saat perpindahan dimensi dilakukan.
 - **Wujud Visual Esensi:** Berupa **bola api berkobar yang memancarkan cahaya putih dengan semburat biru** saat apinya menyala (dapat dilihat secara kasat mata oleh semua makhluk). Bola api ini menyimpan rekaman memori Sang Utusan dan tatanan hukum dunia lama.
-- **Keputusan Malaikat Agung:**
-  - Karena para Malaikat diciptakan dari Cahaya murni, mereka **buta terhadap memori duniawi** yang tersimpan di dalam bola api putih-kebiruan ini.
-  - Menilai esensi ini "tidak berguna bagi langit", Malaikat Agung menamainya **"Abu Fana" (*Terrene Cinder*)** dan memendamnya di bawah tanah bersama reruntuhan kota kuno.
+- **Keputusan Sang Malaikat Agung:**
+  - Karena Sang Malaikat Agung diciptakan dari Cahaya murni, ia **buta terhadap memori duniawi** yang tersimpan di dalam bola api putih-kebiruan ini.
+  - Menilai esensi ini "tidak berguna bagi langit", Sang Malaikat Agung menamainya **"Abu Fana" (*Terrene Cinder*)** dan memendamnya di bawah tanah bersama reruntuhan kota kuno.
 - **Sebutan Manusia:**
   Di kemudian hari, sisa esensi bola api putih-kebiruan yang terpendam ini dikenal sebagai **"Jantung Aethel" (*Heart of Aethel*)**.
+- **Kekhawatiran di Akhir Zaman (Potensi Hukuman Langit Kedua):**
+  - Ketika seluruh pecahan Jantung Aethelgard yang terpendam berhasil disatukan kembali oleh Azariel, Sang Malaikat Agung mendeteksi kebangkitan kekuatan tersebut.
+  - Dipicu oleh kekhawatirannya akan terulangnya kebobrokan perang dan malapetaka peradaban masa lalu, Sang Malaikat Agung turun kembali ke Aethelgard untuk mempertimbangkan atau melaksanakan **Hukuman Langit Kedua** guna memusnahkan kembali benih kekacauan duniawi, hingga Azariel berdiri pasang badan untuk membuktikan kelayakan hidup kaum manusia.
 
 ---
 

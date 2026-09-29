@@ -23,13 +23,13 @@ Dokumen ini mencatat kronologi peristiwa penting dalam semesta cerita, mulai dar
 - Perang saudara dahsyat meletus di seluruh Aethelgard. Sang Utusan terikat mandat netralitas sehingga tidak memihak faksi manapun.
 
 ### D. Katastrofisme Pertama: Pemurnian Agung / Hukuman Langit
-- Karena kerusakan bumi dan kezaliman perang yang meluap, Sang Pencipta mengutus **Malaikat Agung** (diciptakan dari Cahaya) untuk menggelar **Pemurnian** (*Purification*, disebut **"Hukuman Langit"** oleh manusia).
+- Karena kerusakan bumi dan kezaliman perang yang meluap, Sang Pencipta mengutus **Sang Malaikat Agung** (1 sosok tunggal, diciptakan dari Cahaya) untuk menggelar **Pemurnian** (*Purification*, disebut **"Hukuman Langit"** oleh manusia).
 - Seluruh peradaban tiran dan kubu perang kedua faksi disapu bersih oleh bencana kosmis.
 
 ### E. Pengungsian ke Vivarium & Pemendaman "Abu Fana"
 - Sang Utusan memindahkan kedua faksi manusia ke dimensi suaka terpisah (**Vivarium**), lalu menyegel perbatasan dan menetap di ambang batas sebagai penjaga abadi.
 - **Peninggalan yang Tercecer:** Ketika perpindahan terjadi, sisa ingatan dan pecahan kekuatan Sang Utusan tertinggal di Aethelgard dalam wujud **bola api berkobar berwarna putih dengan semburat biru**.
-- **Pemendaman oleh Malaikat:** Malaikat Agung menemukan esensi ini. Karena menilai kekuatan duniawi ini tidak berguna di alam surgawi dan buta terhadap memori di dalamnya, Malaikat menamainya **Abu Fana (*Terrene Cinder*)** dan memendamnya jauh di bawah lapisan tanah bersama reruntuhan kota kuno yang hancur.
+- **Pemendaman oleh Sang Malaikat Agung:** Sang Malaikat Agung menemukan esensi ini. Karena menilai kekuatan duniawi ini tidak berguna di alam surgawi dan buta terhadap memori di dalamnya, Sang Malaikat Agung menamainya **Abu Fana (*Terrene Cinder*)** dan memendamnya jauh di bawah lapisan tanah bersama reruntuhan kota kuno yang hancur.
 - Di bumi, esensi terpendam ini dikenal sebagai **Jantung Aethel (*Heart of Aethel*)**.
 
 ---
@@ -68,3 +68,8 @@ Dokumen ini mencatat kronologi peristiwa penting dalam semesta cerita, mulai dar
 
 ### C. Fase Pengembaraan (Usia 18–19 Tahun ke Atas)
 - Memasuki usia akhir remaja Kael dan Mira, Azariel bersama Kael (ksatria pedang) dan Mira (ahli medis) melangkah keluar desa untuk menyerap pecahan bola api Jantung Aethel di berbagai reruntuhan benua Aethelgard.
+
+### D. Babak Klimaks: Penyatuan Jantung Aethelgard & Pertarungan Melawan Sang Malaikat Agung
+- **Kebangkitan Pusaka Purba:** Azariel berhasil menyatukan seluruh pecahan Jantung Aethelgard yang tersebar. Gelombang getaran kosmis ini terdeteksi hingga ke takhta langit.
+- **Turunnya Sang Malaikat Agung:** Didorong oleh kekhawatiran dan trauma masa lalu atas hancurnya peradaban era lama, Sang Malaikat Agung (1 sosok) turun untuk mempertimbangkan atau melaksanakan **Hukuman Langit Kedua** guna memusnahkan kembali benih kekacauan duniawi.
+- **Perisai Kemanusiaan:** Sekali lagi, Azariel berdiri pasang badan membentengi bumi Aethelgard dan umat manusia fana. Ditemani oleh kesetiaan pedang Kael dan ketulusan medis Mira, Azariel membuktikan bahwa manusia telah berbenah dan memiliki cinta kasih yang tulus, melahirkan rekonsiliasi kosmis baru.

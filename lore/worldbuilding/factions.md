@@ -46,6 +46,7 @@ Dokumen ini memuat catatan faksi, kelompok sosial, dan ordo yang membentuk dinam
 - **Hakikat:** Bukan manusia, setara malaikat, diciptakan langsung dari **Hukum Aethelgard**.
 - **Kondisi Terkini:** Mengalami dampak **Corrosion** yang mengikis kesadaran kosmisnya perlahan **"bagaikan gunung yang ditetesi air"** di dalam kehampaan Vivarium sembari menjaga segel perbatasan.
 
-### B. Ordo Surgawi (*The Heavenly Host / Archangels*)
-- **Hakikat:** Entitas spiritual murni yang **diciptakan dari Cahaya**.
-- **Peran:** Pelaksana titah Sang Pencipta. Menjalankan Pemurnian (*Purification*) untuk menghapus peradaban korup di Aethelgard.
+### B. Sang Malaikat Agung (*The Archangel*)
+- **Hakikat:** **Satu sosok tunggal** entitas spiritual murni tertinggi yang **diciptakan dari Cahaya**.
+- **Peran:** Pelaksana tunggal titah Sang Pencipta. Menjalankan Pemurnian (*Purification*) untuk menghapus peradaban korup di Aethelgard pada masa Katastrofisme Pertama.
+- **Kekhawatiran di Akhir Zaman:** Memantau Aethelgard dan turun kembali saat Jantung Aethelgard telah utuh karena kekhawatirannya akan kebobrokan masa lalu, berpotensi menggelar Hukuman Langit Kedua sebelum dihadapi oleh Azariel.

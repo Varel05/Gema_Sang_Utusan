@@ -52,7 +52,7 @@
 ### B. Fase Pengembaraan (Menyerap Jantung Aethel)
 - Memasuki usia akhir remaja Kael dan Mira, saat ancaman The Husks semakin mendesak, Azariel bersama keduanya melangkah keluar desa memulai pengembaraan besar.
 - Ilmunya berkembang pesat dengan **mempelajari dan menyerap ilmu yang hilang dari masa lalu melalui pecahan Jantung Aethel** (bola-bola api putih-kebiruan lain yang tersembunyi di reruntuhan Aethelgard).
-- **Hak Akses Eksklusif:** Hanya Azariel yang dapat melihat dan membuka memori kosmis Jantung Aethel (Malaikat Agung buta terhadap informasi ini). Melalui pecahan ini, ia merekonstruksi rahasia pembatas dimensi Vivarium.
+- **Hak Akses Eksklusif:** Hanya Azariel yang dapat melihat dan membuka memori kosmis Jantung Aethel (Sang Malaikat Agung buta terhadap informasi ini). Melalui pecahan ini, ia merekonstruksi rahasia pembatas dimensi Vivarium.
 
 ---
 
@@ -60,9 +60,13 @@
 - **Dengan Kael & Mira:** 
   - Saudara angkat dan sahabat terdekat; Kael dan Mira tidak pernah menganggapnya dewa atau entitas spesial, melainkan sosok manusia berharga yang harus mereka jaga.
   - **Dinamika Overprotektif:** Mengingat hari pertama saat Azariel roboh pingsan tak berdaya, Kael (dengan ilmu pedang kesatrianya) dan Mira (dengan keahlian medisnya) bersikap sangat protektif kepadanya.
-- **Dengan Ayah Kael:** Orang yang pertama kali membopong raganya keluar dari hutan rimba saat ia pingsan.
+- **Dengan Ayah Kael (Bran):** Pemburu tangguh yang pertama kali membopong raganya keluar dari hutan rimba saat ia pingsan, serta melatih Kael dan pemuda desa untuk melindungi perbatasan.
 - **Dengan Tetua Desa (Kakek Mira):** Sosok pelindung rahasia yang memberinya nama dan menjaga status sakralnya dari dunia luar.
 - **The Husks:** Musuh alami yang memburu tubuh Azariel demi pecahan Jantung Aethel.
+- **Dengan Sang Malaikat Agung:** 
+  - Pada bab klimaks (*Bara di Balik Abu Fana*), Azariel akan berhadapan langsung satu lawan satu dengan satu sosok Sang Malaikat Agung.
+  - Sang Malaikat Agung turun kembali setelah mendeteksi Jantung Aethelgard telah utuh kembali, didorong oleh kekhawatiran dan trauma masa lalunya akan malapetaka peradaban kuno, berniat menjatuhkan **kemungkinan Hukuman Langit Kedua**.
+  - Sekali lagi, Azariel akan berdiri pasang badan melindungi Aethelgard dan kaum manusia, membuktikan bahwa kemanusiaan telah memiliki hati pelindung yang sejati.
 
 ---
 
@@ -70,4 +74,4 @@
 - **Titik Awal (Bab 1):** Terwujud dari kobaran bola api putih semburat biru, pasang badan membentengi anak-anak, ambruk pingsan, diperiksa oleh Mira, dibopong oleh ayah Kael, dan dinamai Azariel oleh tetua desa.
 - **Masa Kedewasaan di Desa:** Tinggal dalam penyamaran; belajar berbicara dan menyerap kemanusiaan sejati dari ketulusan Kael dan Mira yang menganggapnya manusia biasa.
 - **Fase Pengembaraan:** Mengembara melintasi benua Aethelgard bersama ksatria pedang Kael dan tabib medis Mira untuk mengumpulkan pecahan bola api Jantung Aethel.
-- **Tujuan Akhir:** Menjadi jembatan rekonsiliasi semesta, menyempurnakan kegagalan Sang Utusan purba dengan hati yang memahami kepedihan manusia sejati.
+- **Tujuan Akhir (Bab Klimaks):** Berhadapan dengan Sang Malaikat Agung di ambang celah Vivarium; melindungi bumi Aethelgard dari ancaman Hukuman Langit Kedua; menjadi jembatan rekonsiliasi kosmis yang menyempurnakan kegagalan masa lalu dengan kekuatan cinta dan ketulusan hati manusia.

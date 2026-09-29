@@ -12,7 +12,7 @@ Dokumen ini memuat istilah khusus semesta cerita, panduan penamaan, pelafalan, s
 | **Kael** | Remaja The Remnant, putra keluarga pemburu. Berjiwa petualang, pemberani, dan ceria; mendedikasikan diri mendalami ilmu pedang kesatria untuk menjadi "Mata Pedang" pelindung Azariel. | Tokoh Pendukung Utama |
 | **Mira** | Remaja The Remnant, putri petani & cucu Tetua Desa. Memiliki empati batin mendalam; mengembangkan ilmu herba hingga ke tingkat praktik medis profesional untuk merawat Azariel. | Tokoh Pendukung Utama |
 | **Sang Utusan (*The Envoy*)** | Entitas kosmis asli ciptaan dari Hukum Aethelgard yang kini terkurung menahan dampak Corrosion di ambang batas Vivarium. | Tokoh Sakral / Penjaga Segel |
-| **Malaikat Agung (*Archangels*)** | Entitas spiritual murni ciptaan dari Cahaya, pelaksana titah Sang Pencipta dan eksekutor Pemurnian. | Ordo Surgawi |
+| **Sang Malaikat Agung (*The Archangel*)** | Satu sosok entitas spiritual murni tertinggi ciptaan dari Cahaya, pelaksana titah Sang Pencipta dan eksekutor tunggal Pemurnian. | Entitas Surgawi Tertinggi |
 | **The Husks** | Cangkang kosong pasca-manusia dari Vivarium berwujud ungu-kelabu tanpa kepala (atau sebagian kepala) yang digantikan bola api ungu berkobar, serta retakan tubuh berisi kobaran api ungu gelap tanpa organ/tulang. Memburu Jantung Aethel untuk mengisi kehampaan diri. | Antagonis Alam / Faksi Pasca-Manusia |
 | **Vane** | Juragan kebun anggur kaya yang angkuh dan berpengaruh besar dalam perekonomian desa. Mengincar posisi pemimpin desa dengan memanfaatkan kekosongan pewaris dewasa setelah wafatnya putri Tetua (ibu Mira), memicu konflik dingin dengan keluarga Tetua. | Tokoh Pendukung / Oposisi Internal Desa |
 | **Bran** | Ayah Kael, ketua regu patroli perbatasan dan pelatih tempur pemuda desa. Mantan prajurit garda utama kadipaten yang memilih hidup tenang di desa sebagai pemburu; menyimpan senjata dan zirah lamanya di gudang untuk diwariskan ke Kael *(backstory baru diungkap mulai Bab 3)*. | Tokoh Pendukung / Pelindung Desa |
@@ -30,7 +30,7 @@ Dokumen ini memuat istilah khusus semesta cerita, panduan penamaan, pelafalan, s
 | **Mitos Bintang Jatuh (*The Falling Star Lore*)** | Kepercayaan lisan di kalangan keluarga pemburu bahwa bintang jatuh adalah lintasan malaikat pembawa kabar kepada Tuhan; berdoa saat bintang jatuh diyakini akan didengar langsung oleh malaikat untuk dihantarkan ke langit. | Tradisi Lisan / Cerita Rakyat |
 | **Corrosion** | Sifat, fenomena, atau dampak disintegrasi eksistensial yang dialami oleh siapa pun di Vivarium akibat ketiadaan hukum Aethelgard. | Fenomena Metafisik / Dampak Dimensi |
 | **Jantung Aethel (*Heart of Aethel*)** | Esensi memori dan kekuatan Sang Utusan yang berwujud **bola api berkobar berwarna putih dengan semburat biru**, kasat mata bagi semua orang. | Mitos Dunia / Artefak Purba |
-| **Abu Fana (*Terrene Cinder*)** | Sebutan bangsa Malaikat untuk Jantung Aethel yang dinilai tak berguna di langit sehingga dipendam di bumi. | Kosmologi Malaikat / Teologi |
+| **Abu Fana (*Terrene Cinder*)** | Sebutan Sang Malaikat Agung untuk Jantung Aethel yang dinilai tak berguna di langit sehingga dipendam di bumi. | Teologi Surgawi / Kosmologi |
 | **Hukuman Langit / Pemurnian** | Peristiwa Katastrofisme Pertama yang menyapu bersih peradaban kuno pra-Remnant. | Sejarah Kosmis |
 
 ---

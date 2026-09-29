@@ -8,7 +8,7 @@ Di sudut bilik rumah panggung yang sederhana, sebutir lentera minyak menyala tem
 
 Pria tua itu tersenyum teduh. Jemarinya yang kasar namun hangat membelai pucuk kepala cucunya, lalu menuangkan sejumput rempah kering ke dalam mangkuk tanah liat.
 
-"Bukan sekadar menjejakkan kaki, cucuku," suara kakeknya bergetar rendah, berirama seperti dongeng pengantar tidur yang telah melintasi ratusan generasi. "Sang Utusan dirajut langsung dari hukum alam dunia ini—dari detak bumi Aethelgard itu sendiri. Berbeda dengan para malaikat agung yang diciptakan dari cahaya murni di langit tertinggi, Sang Utusan hadir membimbing manusia fana, membawa ilmu tatanan dan mengajarkan ketauhidan mutlak kepada Sang Pencipta."
+"Bukan sekadar menjejakkan kaki, cucuku," suara kakeknya bergetar rendah, berirama seperti dongeng pengantar tidur yang telah melintasi ratusan generasi. "Sang Utusan dirajut langsung dari hukum alam dunia ini—dari detak bumi Aethelgard itu sendiri. Berbeda dengan Sang Malaikat Agung yang diciptakan dari cahaya murni di langit tertinggi, Sang Utusan hadir membimbing manusia fana, membawa ilmu tatanan dan mengajarkan ketauhidan mutlak kepada Sang Pencipta."
 
 Mira mendekatkan dagunya ke lutut, membiarkan imajinasinya melayang jauh ke masa ribuan tahun silam. "Lalu... mengapa dunia lama itu hancur, Kek?"
 
@@ -18,7 +18,7 @@ Helaan napas sang tetua terasa berat, seolah memikul beban sejarah masa lampau y
 
 Sang kakek memandang nyala sumbu lentera yang bergoyang pelan.
 
-"Melihat bumi yang dirusak oleh kezaliman dan perselisihan yang tiada henti, Sang Pencipta menitahkan para Malaikat Agung turun menjatuhkan *Hukuman Langit*. Bencana dahsyat menyapu bersih kota-kota megah dan kebobrokan peradaban lama."
+"Melihat bumi yang dirusak oleh kezaliman dan perselisihan yang tiada henti, Sang Pencipta menitahkan Sang Malaikat Agung turun menjatuhkan *Hukuman Langit*. Bencana dahsyat menyapu bersih kota-kota megah dan kebobrokan peradaban lama."
 
 "Tapi kita selamat..." gumam Mira lirih.
 

@@ -34,8 +34,8 @@ Pecahan **Jantung Aethel** (disebut *Abu Fana* oleh malaikat) adalah manifestasi
 
 ### C. Batasan Akses: Eksklusivitas Memori Azariel
 - **Buta Malaikat (*Angelic Blindspot*):**
-  - Para Malaikat Agung diciptakan dari **Cahaya murni**, bukan dari Hukum Aethelgard. Oleh karena itu, para Malaikat **sama sekali tidak dapat melihat, membaca, atau mengakses informasi/memori** yang terkandung di dalam bola api Jantung Aethel.
-  - Inilah alasan mengapa dahulu Malaikat Agung menganggap esensi ini "tidak berfaedah bagi langit" dan memendamnya di bumi.
+  - Sang Malaikat Agung diciptakan dari **Cahaya murni**, bukan dari Hukum Aethelgard. Oleh karena itu, Sang Malaikat Agung **sama sekali tidak dapat melihat, membaca, atau mengakses informasi/memori** yang terkandung di dalam bola api Jantung Aethel.
+  - Inilah alasan mengapa dahulu Sang Malaikat Agung menganggap esensi ini "tidak berfaedah bagi langit" dan menamainya Abu Fana serta memendamnya di bumi.
 - **Hak Akses Tunggal Azariel:**
   - **Hanya Azariel** yang memiliki kompatibilitas ontologis untuk menyerap dan melihat proyeksi memori di dalam Jantung Aethel.
   - Bagi orang lain atau The Husks, Jantung Aethel hanya tampak sebagai bola api putih-kebiruan yang berkobar; hanya Azariel yang mampu membuka rekaman memori dan ilmu masa lalu di dalamnya.
