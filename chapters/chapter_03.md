@@ -134,6 +134,8 @@ Gadis itu tidak pernah membiarkannya merasa terasing. Sambil menumbuk herba keri
 
 "Pintar sekali," puji Mira seraya tersenyum bangga, menyeka butir keringat di dahi pemuda itu dengan kain bersih.
 
+Tidak berhenti pada tuturan lisan, ketika Mira menyadari tatapan lekat Azariel pada tumpukan catatan kuno milik kakeknya, gadis itulah yang pertama kali mengajarinya membaca aksara Aethelgard. Dengan arang kayu di atas serpihan kulit kayu birch, Mira menggambar bentuk-bentuk huruf satu per satu. Pikiran Azariel—yang sejatinya dirajut dari tatanan kosmis—menyerap setiap lambang dan tata bahasa dengan kecepatan luar biasa. Membaca lembaran buku seketika menjadi jendela terbesarnya untuk memahami sejarah, geografi, dan kehangatan dunia fana; sebuah hobi hening yang kelak menjadi bagian tak terpisahkan dari hari-harinya di lembah.
+
 Ketika senja turun dan semburat jingga keemasan mewarnai pucuk-pucuk pohon pinus purba, Kael akan berlari pulang dengan napas terengah-engah dan memar di sikunya, membawa sebakul buah beri hutan atau ikan air tawar hasil tangkapannya di sungai. Mereka bertiga akan duduk di beranda; Mira merawat goresan luka di lengan Kael seraya mengomelinya pelan, Kael berceloteh riang tentang teknik tangkisan baru yang diajarkan ayahnya, sementara Azariel duduk tenang di antara mereka, mendengarkan celoteh hangat tersebut sambil merasakan semilir angin pegunungan.
 
 Mimpi buruk tentang langit putih yang membakar dan penghakiman sayap-sayap cahaya itu masih ada, terkubur jauh di dalam relung memorinya yang terkunci. Namun saat menatap tawa lepas Kael dan keteduhan mata Mira di bawah cahaya temaram lentera minyak, Azariel menyadari sesuatu yang baru di dalam dadanya.
