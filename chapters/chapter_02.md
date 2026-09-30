@@ -10,69 +10,71 @@ Bisik-bisik cemas mendengung laksana kawanan lebah yang terusik dari sarangnya.
 
 "Lalu siapa pria asing di dalam bilik Tetua itu? Rambutnya putih bersemburat biru ganjil... jangan-jangan dia penyihir buangan dari kadipaten seberang perbatasan!"
 
-Di tengah lingkaran kerumunan obor tersebut, Kael berdiri kaku. Kedua lutut anak laki-laki itu masih berlumur tanah cadas basah, dan telapak tangannya tergores duri semak rimba saat ia berlari kalap tadi. Jantungnya masih berdegup kencang, namun sorot matanya menolak tunduk di bawah tatapan puluhan pasang mata orang dewasa yang menuntut jawaban.
+Di tengah lingkaran kerumunan obor tersebut, Kael berdiri kaku. Kedua lutut anak laki-laki itu masih berlumur tanah cadas basah, dan telapak tangannya tergores duri semak rimba. Jantungnya masih berdegup kencang, namun sorot matanya menolak tunduk di bawah tatapan puluhan pasang mata orang dewasa yang menuntut jawaban.
 
-"Kael," Vane melangkah maju membelah kerumunan. Pria paruh baya itu mengenakan mantel wol tebal berwarna anggur matang yang bersih—kontras dengan pakaian lusuh para penggarap tanah di sekitarnya. Tangan kanannya bertumpu pada tongkat kayu berukir dengan cincin perunggu di ujungnya. Sebagai pemilik perkebunan anggur terbesar di lembah tempat sebagian besar warga menggantungkan upah dan pinjaman, langkahnya selalu diikuti tatapan segan. Ditatapnya Kael dengan dagu terangkat angkuh. "Bicaralah yang jelas, Nak. Kau membangunkan seisi desa di tengah malam buta. Apakah kau benar-benar melihat binatang buas, atau kau hanya panik karena gelap dan mengarang cerita konyol setelah menyeret Mira menyelinap ke tebing terlarang?"
+"Kael," Vane melangkah maju membelah kerumunan. Pria paruh baya itu mengenakan mantel wol tebal berwarna anggur matang yang bersih—kontras dengan pakaian lusuh para penggarap tanah di sekitarnya. Tangan kanannya bertumpu pada tongkat kayu berukir dengan cincin perunggu di ujungnya. Sebagai pemilik perkebunan anggur terbesar di lembah tempat sebagian besar warga menggantungkan upah dan pinjaman, langkahnya selalu diikuti tatapan segan. Ditatapnya Kael dengan dagu terangkat skeptis. "Bicaralah yang jelas, Nak. Kau membangunkan seisi desa di tengah malam buta. Apakah kau benar-benar melihat binatang buas, atau kau hanya panik karena gelap dan mengarang cerita konyol setelah menyeret Mira menyelinap ke tebing terlarang?"
 
 Darah muda Kael berdesir panas. Anak pemburu itu mengepalkan kedua tinjunya di sisi paha.
 
 "Aku tidak mengarang, Paman Vane!" suara Kael meninggi, bergetar oleh campuran amarah dan sisa ketakutan yang belum surut. "Aku dan Mira melihatnya sendiri! Tingginya dua meter, melangkah keluar dari balik pinus purba... gerakannya patah-patah seperti mayat kaku!"
 
-Beberapa warga buruh kebun yang berdiri di belakang Vane saling pandang dengan senyum sangsi, mendesah pelan seraya mengangguk menyetujui ucapan sang juragan.
+Beberapa warga buruh kebun yang berdiri di belakang Vane saling pandang seraya berbisik mencemooh.
 
-"Dua meter? Bergerak patah-patah?" seorang peternak lembu di barisan belakang mendengus sinis. "Kael, bayangan pohon pinus di malam hari bisa menipu mata pemburu paling tajam sekalipun. Mungkin hanya beruang tua yang berdiri dengan dua kaki belakangnya karena terkejut mencium bau manusia."
+"Dua meter? Bergerak patah-patah?" Doran, seorang peternak lembu berbadan gempal yang berutang bibit ternak pada Vane, mendengus sinis seraya mengibaskan tangannya. "Kael, bayangan cabang pohon pinus ditiup angin malam bisa menipu mata anak kecil. Paling-paling hanya beruang tua pincang yang berdiri dengan dua kaki belakangnya!"
 
 "Bukan beruang!" sergah Kael napasnya memburu, matanya membelalak mengingat bayangan ngeri di tebing batu itu. "Makhluk itu tidak memiliki kepala! Lehernya putus, dan di atas pundaknya berkobar bola api berwarna ungu gelap! Kulitnya ungu-kelabu bagai abu tungku mati yang membeku!"
 
-Keheningan sesaat menyergap alun-alun, sebelum desau tawa getir dan keraguan yang lebih keras merebak di antara kerumunan.
+Desau tawa getir dan keraguan yang lebih keras merebak di antara kerumunan.
 
-"Bola api ungu menggantikan kepala? Astaga, bocah ini benar-benar sedang melantur."
-
-"Mana ada makhluk hidup dengan api berkobar di lehernya? Kael, kau kebanyakan mendengarkan dongeng sebelum tidur!"
+"Bola api ungu menggantikan kepala? Astaga, bocah ini melantur makin jauh."
 
 "Dengarkan aku dulu!" teriak Kael putus asa, melangkah maju hingga ujung sepatunya menyentuh batas perapian tanah. "Tubuhnya... di sekujur dada dan lengannya ada retakan-retakan besar yang menganga! Di balik retakan kulit ungu-kelabu itu tidak ada daging, tidak ada darah, dan tidak ada tulang! Hanya rongga hampa yang terbakar oleh api ungu pekat! Dan satu ayunan tangannya menghancurkan batang pinus sebesar pelukan orang dewasa!"
 
-Keterangan itu bukannya menenangkan, melainkan memicu kegaduhan yang semakin liar. Para petani yang sederhana mulai merasa akal sehat mereka dilecehkan, sementara yang lain mulai dilanda ketakutan tak berdasar.
+Keterangan itu memicu kegaduhan yang semakin liar. 
 
-"Cukup, Kael! Semakin kau bicara, semakin terdengar seperti igauan demam!" seru seorang pria muda berwajah tirus dari pinggir alun-alun. "Jangan-jangan orang asing berambut putih di dalam rumah Tetua itulah yang mencelakai kalian, lalu membualkan cerita tahayul ini kepadamu agar kita tidak mengusirnya ke perbatasan!"
+"Cukup, Kael!" seru Jarek, pandai besi muda berwajah tirus yang terkenal vokal dan mudah curiga. "Bagaimana kalau pemuda berambut putih di dalam rumah Tetua itulah yang mencelakai kalian, lalu membualkan cerita tahayul ini kepadamu agar kita tidak mengusirnya ke perbatasan?!"
 
-"Benar! Siapa yang tahu asal-usul pemuda itu? Bisa jadi dia mata-mata perang dari kerajaan perbatasan yang sengaja pura-pura sekarat!"
+"Benar kata Jarek!" timpal Doran dengan nada menghasut. "Siapa yang tahu asal-usul orang asing itu? Bisa jadi dia mata-mata buronan dari kadipaten yang sengaja pura-pura sekarat!"
 
 "Usir saja dia sebelum prajurit kadipaten melacak jejaknya ke lembah kita!"
 
-Suasana alun-alun memanas tak terkendali. Obor-obor diacungkan ke udara, dan suara perdebatan mulai berubah menjadi desakan gusar yang mengarah ke pintu gerbang kediaman Tetua.
+Tepat saat suasana alun-alun memanas, daun pintu samping kediaman Tetua berderit terbuka sedikit. Sosok Mira muncul di ambang pintu, membawa baskom tembikar berisi air hangat beraroma rebusan daun mint dan herba penenang. Wajah gadis kecil itu masih pucat dan matanya sembap, namun ia menatap tajam ke arah Doran dan Jarek tanpa gentar.
+
+"Orang itu bukan mata-mata!" seru Mira lantang, suaranya yang jernih membelah kegaduhan serambi. "Dia mempertaruhkan nyawanya menahan cakar makhluk itu demi kami! Kalau dia musuh, dia sudah membiarkan kami mati di tebing!"
+
+Kemunculan cucu sang Tetua membuat beberapa tetua keluarga menahan napas segan. Mira menoleh cepat ke arah Kael, memberi anggukan kecil penuh tekad, lalu kembali melangkah masuk ke dalam bilik untuk merawat pemuda itu.
+
+Namun desakan warga belum sepenuhnya reda hingga sebuah suara menggelegar membelah udara.
 
 *KLANGGG!*
 
-Sebuah dentangan logam berat menghantam batu cadas di tengah alun-alun, memercikkan bunga api merah yang membelah kegaduhan seketika.
-
-Seluruh suara tercekat.
+Sebuah dentangan logam berat menghantam batu cadas di tengah alun-alun, memercikkan bunga api merah yang membungkam kegaduhan dalam sekejap.
 
 Ayah Kael melangkah tegap ke tengah lingkaran, satu tangannya mencengkeram gagang kapak buru bergagang pohon ek yang baru saja ia tancapkan ke tanah cadas. Tubuh sang pemburu yang liat dan menjulang memancarkan wibawa dingin seorang pria yang telah menghabiskan separuh usianya menatap maut di kedalaman rimba terlarang. Di sampingnya, obor damar miliknya berkobar tenang, memantulkan ketajaman sorot mata yang tak terbantahkan.
 
-"Tutup mulut kalian semua," suara ayah Kael meluncur rendah, namun begitu berat hingga mampu membungkam bisik-bisik para pria di hadapannya.
+"Tutup mulut kalian semua," suara Bran meluncur rendah, namun begitu berat hingga mampu membungkam bisik-bisik para pria di hadapannya.
 
 Sang pemburu memandangi para tetangganya satu per satu dengan tatapan menghunus.
 
-"Kalian meragukan putraku?" ayah Kael melangkah mendekat ke arah Vane dan para penyangkal lainnya. "Kael dibesarkan di atas jejak rimba sejak ia baru bisa berjalan. Ia mengenali jejak cakar serigala, ia tahu suara patahan dahan beruang, dan ia tidak pernah sekalipun lari terbirit-birit menangis karena sekadar bayangan kabut malam!"
+"Kalian meragukan putraku?" Bran melangkah mendekat ke arah Vane, Doran, dan Jarek. "Kael dibesarkan di atas jejak rimba sejak ia baru bisa berjalan. Ia mengenali jejak cakar serigala, ia tahu suara patahan dahan beruang, dan ia tidak pernah sekalipun lari terbirit-birit menangis karena sekadar bayangan kabut malam!"
 
-Kerumunan warga terdiam kaku. Tak seorang pun berani menentang tatapan mata pemburu tertua di lembah itu.
+Kerumunan warga terdiam kaku. Doran menundukkan pandangannya, sementara Vane bergeser setengah langkah ke belakang.
 
-"Aku sendiri yang memimpin rombongan naik ke Tebing Pinus," lanjut ayah Kael dengan dada bergemuruh dingin. "Kalian yang ikut bersamaku tadi... apakah kalian buta? Batang pinus purba di tebing itu remuk berkeping-keping bukan karena ditebang kapak, melainkan dihantam oleh satu benturan kekuatan yang melampaui tenaga sepuluh ekor banteng! Dan tanah cadas tempat Mira mendekap pemuda itu... tanah itu hangus menghitam, namun ketika kusentuh, batu itu membeku sedingin es gunung utara dan menyebarkan aroma abu mati yang tak pernah ada di rimba fana mana pun!"
+"Aku sendiri yang memimpin rombongan naik ke Tebing Pinus," lanjut Bran dengan dada bergemuruh dingin. "Kalian yang ikut bersamaku tadi... apakah kalian buta? Batang pinus purba di tebing itu remuk berkeping-keping bukan karena ditebang kapak, melainkan dihantam oleh satu benturan kekuatan luar biasa! Dan tanah cadas tempat Mira mendekap pemuda itu... tanah itu hangus menghitam, namun ketika kusentuh, batu itu membeku sedingin es dan menyebarkan aroma abu mati yang tak pernah ada di rimba fana mana pun!"
 
-Ayah Kael mencabut kapak burunya dari tanah dalam satu sentakan mantap.
+Bran mencabut kapak burunya dari tanah dalam satu sentakan mantap.
 
 "Putraku tidak berbohong. Jika bukan karena pemuda asing di dalam sana yang memasang badannya menahan makhluk terkutuk itu, malam ini kita tidak akan berkumpul di alun-alun untuk berdebat, melainkan mengubur jasad Mira dan Kael yang telah tercabik-cabik!"
 
-Kata-kata sang pemburu menampar kesadaran warga desa laksana guyuran air es. Keraguan yang semula riuh kini berubah menjadi kecemasan yang membeku di dada. Para petani menelan ludah getir; mereka menyadari bahwa bahaya yang mengintai di balik barisan pinus bukan lagi sekadar satwa liar pemangsa ternak, melainkan sesuatu yang purba, asing, dan mematikan.
+Kata-kata sang pemburu menampar kesadaran warga desa. Keraguan yang semula riuh kini berubah menjadi kecemasan yang membeku di dada. Para petani menelan ludah getir; mereka menyadari bahwa bahaya yang mengintai di balik barisan pinus bukan lagi sekadar satwa liar pemangsa ternak.
 
-Di tengah keheningan mencekam yang merayap di alun-alun tanah itu, suara derit engsel kayu terdengar bergema lambat.
+Di tengah keheningan mencekam yang merayap di alun-alun itu, suara derit engsel kayu terdengar bergema lambat.
 
 Pintu ganda jati berukir di teras kediaman Tetua Desa terbuka perlahan.
 
-Sesosok pria tua melangkah keluar ke beranda berundak batu yang menghadap langsung ke alun-alun. Jubah tenun kelabu kasarnya tersampir bersahaja di pundaknya yang sedikit membungkuk dimakan usia. Janggut peraknya yang panjang menyentuh dada berkibar perlahan disapa angin malam, dan sepasang matanya yang teduh memancarkan kedalaman samudra kearifan kaum *The Remnant*. Di tangannya, sang tetua menggenggam tongkat kayu pinus tua berukirkan sulur dedaunan—simbol pemelihara amanah tanah semesta Aethelgard.
+Sang Tetua melangkah keluar ke beranda berundak batu yang menghadap langsung ke alun-alun. Jubah tenun kelabu kasarnya tersampir bersahaja di pundaknya yang sedikit membungkuk dimakan usia. Janggut peraknya menyentuh dada, dan guratan di keningnya tampak lebih dalam dari biasanya—kelelahan fisik dan beban berat terlihat jelas di balik kerut wajah rentanya. Di tangannya, pria tua itu menggenggam tongkat kayu pinus tua berukirkan sulur dedaunan untuk menopang langkahnya yang letih.
 
-Melihat sang Tetua Desa muncul, puluhan warga seketika menundukkan kepala dengan takzim. Ayah Kael menurunkan kapaknya, sementara Kael menarik napas panjang, memandang kakek Mira dengan rasa hormat yang mendalam.
+Melihat sang Tetua Desa muncul, puluhan warga menundukkan kepala. Bran menurunkan kapaknya, sementara Kael menarik napas panjang seraya menyeka pelipisnya.
 
 Sang tetua memandang kerumunan warganya dengan tatapan meneduhkan, menyapu obor-obor yang bergetar dan kegelisahan yang membayang di setiap kening manusia di hadapannya.
 
@@ -113,53 +115,53 @@ Suara lantunan sang tetua bergema dingin di alun-alun, membelah desau angin mala
 
 Mendengar penuturan sang tetua yang merinci persis setiap lekuk wujud monster yang dilihatnya di tebing, napas Kael tertahan di tenggorokan. Rasa dingin kembali merayap di punggungnya. Semua yang ia lihat bukan ilusi; mimpi buruk itu nyata, memiliki nama, dan kini sedang mengintai di balik bayang-bayang rimba mereka.
 
-"Tetua..." Vane melangkah maju, kedua tangannya yang biasa angkuh kini mencengkeram erat tongkat berujung perunggunya hingga buku-buku jarinya memutih. Suaranya kehilangan seluruh nada sinis dan kecongkakannya, digantikan oleh kepanikan yang nyata. "Jika makhluk terkutuk itu berasal dari sisa-sisa peradaban lama... mengapa ia bangkit dan merayap ke lembah kita? Apa yang dicari oleh cangkang kosong itu di desa terpencil ini?!"
+"Tetua..." Vane melangkah maju, kedua tangannya yang biasa angkuh kini mencengkeram erat tongkat berujung perunggunya hingga buku-buku jarinya memutih. Tatapan matanya tajam dan menghitung. "Jika makhluk terkutuk itu berasal dari sisa-sisa zaman purba... mengapa ia merayap ke lembah kita malam ini? Apa yang sebenarnya dicari oleh cangkang kosong itu di desa terpencil ini?!"
 
-Sang tetua terdiam sejenak. Sorot matanya melirik sekilas ke arah jendela bilik belakang rumahnya yang tertutup tirai tebal—tempat di mana seorang pemuda berambut putih bersemburat biru tengah terbaring diselimuti kain wol, dirawat oleh cucunya, Mira.
+Sang tetua terdiam. Keheningan yang turun terasa begitu berat. Sorot matanya melirik sekilas ke arah jendela bilik belakang rumahnya yang tertutup tirai tebal—tempat di mana seorang pemuda berambut putih bersemburat biru tengah terbaring dirawat oleh cucunya. 
 
-Sang tetua tahu persis apa jawabannya. Makhluk itu memburu getaran bara *Jantung Aethel*—sisa kekuatan dan ingatan Sang Utusan yang kini mewujud dalam raga pemuda asing tersebut. *The Husk* mengembara melintasi retakan dimensi didorong oleh rasa lapar eksistensial yang membabi buta, berharap bahwa dengan menelan kobaran api Jantung Aethel, mereka dapat merebut kembali ingatan dan jiwa kemanusiaan mereka yang telah lenyap ditelan kehampaan.
+Jemari sang tetua yang mencengkeram tongkat kayu pinus tampak mengencang hingga urat-urat birunya menonjol. Ada keraguan kelam yang ia telan di balik janggut peraknya sebelum ia kembali memandang warganya, memilih kata-katanya dengan sangat berhati-hati.
 
-Namun rahasia itu terlalu berbahaya untuk dibukakan kepada warga desa malam ini. Jika ketakutan ini menyebar liar hingga terdengar oleh para telik sandi kadipaten di seberang perbatasan, desa agraris mereka akan segera didatangi legiun bersenjata kerajaan yang haus akan pusaka purba, menyeret lembah damai ini ke dalam kancah peperangan yang membinasakan.
+"Mereka lapar, Vane," jawab sang tetua, suaranya terdengar berat dan sarat kelelahan. "Kehampaan yang merenggut jiwa mereka membuat *The Husk* mendambakan kehangatan hidup yang mengalir di bumi Aethelgard. Keberadaan batas rimba kita yang sunyi mungkin telah menjadi celah tipis di mana aroma kehidupan manusia menarik mereka keluar dari kegelapan."
 
-Sang tetua menghela napas pelan, menatap warganya dengan ketegasan seorang gembala yang melindungi kawanan dombanya.
+Sang tetua menarik napas panjang, menatap bergantian antara Vane, Doran, dan para petani yang menunggu dengan cemas.
 
-"Mereka lapar, Vane," jawab sang tetua dengan suara tenang namun tegas. "Kehampaan yang merenggut jiwa mereka membuat *The Husk* mendambakan kehangatan hidup yang mengalir di bumi Aethelgard. Keberadaan batas rimba kita yang sunyi mungkin telah menjadi celah tipis di mana aroma kehidupan manusia menarik mereka keluar dari kegelapan."
+"Mulai malam ini, perketat penjagaan di batas barat dan jalan setapak Tebing Pinus. Para pemburu, bentuk regu patroli bergilir bersama obor damar dan minyak tanah; makhluk itu membenci api dan cahaya murni. Para petani dan peternak, periksa palang kandang dan jangan biarkan anak-anak berkeliaran melewati batas ladang gandum saat senja tiba."
 
-Sang tetua mengangkat tangannya, meminta perhatian mutlak dari seluruh warga di alun-alun.
+Pandangan sang tetua kemudian beralih menatap Bran dengan ketegasan penuh keyakinan.
 
-"Mulai malam ini, perketat penjagaan di batas barat dan jalan setapak Tebing Pinus. Para pemburu, bentuk regu patroli bergilir bersama obor damar dan minyak tanah; makhluk itu membawa hawa beku yang membenci api dan cahaya murni. Para petani dan peternak, periksa palang kandang dan jangan biarkan anak-anak berkeliaran melewati batas ladang gandum saat senja tiba."
+"Dan untuk memimpin seluruh penjejakan di garis terdepan... hanya ada satu orang yang paling mengenal setiap jengkal napas rimba kita. Bran," panggil sang tetua, "dengan bekal pengalaman berburumu selama puluhan musim, kuserahkan kepemimpinan regu patroli perbatasan ini ke tanganmu."
 
-Pandangan sang tetua kemudian beralih menatap ayah Kael dengan ketegasan penuh keyakinan.
+Bran menegakkan punggungnya yang kekar, memegang kapak burunya di depan dada seraya mengangguk mantap. "Amanah kuterima, Tetua. Kami akan memastikan perbatasan tetap bersih dari bayang-bayang kelam."
 
-"Dan untuk memimpin seluruh penjejakan di garis terdepan... hanya ada satu orang yang paling mengenal setiap jengkal napas rimba kita. Bran," panggil sang tetua menyebut nama ayah Kael, "dengan bekal pengalaman berburumu selama puluhan musim di rimba belantara, kuserahkan kepemimpinan regu patroli perbatasan ini ke tanganmu."
-
-Ayah Kael menegakkan punggungnya yang kekar, memegang kapak burunya di depan dada seraya mengangguk mantap. "Amanah kuterima, Tetua. Kami akan memastikan perbatasan tetap bersih dari bayang-bayang kelam."
-
-Mendengar penunjukan ayahnya, darah muda di dada Kael seketika bergolak. Merasa dirinya telah berhadapan langsung dengan makhluk tersebut dan tak ingin hanya berdiam diri di desa, anak laki-laki itu melangkah maju dengan dada membusung.
+Mendengar penunjukan ayahnya, darah muda di dada Kael bergolak. Merasa dirinya telah berhadapan langsung dengan makhluk tersebut dan tak ingin hanya berdiam diri, anak laki-laki itu melangkah maju.
 
 "Aku ikut, Ayah!" seru Kael mantap, tangannya mencengkeram gagang pisau tulang di pinggangnya. "Aku sudah melihat sendiri bagaimana makhluk itu bergerak di antara pohon pinus! Aku bisa memegang obor dan membantu mengawasi celah tebing untuk regu patroli!"
 
-Ayah Kael sempat menatap putranya dengan bimbang, namun sebelum sang pemburu sempat bersuara, sang Tetua Desa telah melangkah mendekat.
+Bran sempat menatap putranya dengan bimbang, namun sang Tetua Desa segera melangkah mendekat.
 
-Tangan sang tetua yang hangat dan berurat mendarat lembut di pundak Kael. Pria tua berjanggut perak itu memandang Kael dengan senyum teduh, menggeleng perlahan—sebuah larangan halus yang tidak merendahkan keberaniannya, melainkan membukakan sebuah pandangan baru.
+Tangan sang tetua mendarat lembut di pundak Kael. Pria tua itu memandang Kael dengan senyum teduh seraya menggeleng pelan.
 
-"Keberanianmu telah teruji malam ini, anakku," bisik sang tetua dengan suara tenang yang meredakan gejolak di dada Kael. "Namun tempatmu bukan di tengah gelapnya rimba bersama para pemburu dewasa. Hutan memiliki mereka untuk menjaganya, tetapi di dalam bilik sana... ada amanah yang jauh lebih rapuh dan membutuhkan ketulusanmu."
+"Keberanianmu telah teruji malam ini, anakku," bisik sang tetua tenang, meredakan gejolak di dada Kael. "Namun tempatmu bukan di tengah gelapnya rimba bersama para pemburu dewasa. Hutan memiliki mereka untuk menjaganya, tetapi di dalam bilik sana... ada amanah yang jauh lebih rapuh dan membutuhkan ketulusanmu."
 
-Sang tetua menolehkan pandangannya ke arah jendela bilik kediamannya yang temaram.
+Sang tetua melirik ke arah pintu bilik belakang kediamannya yang tertutup.
 
-"Mira sedang berjuang seorang diri merawat pemuda itu di tengah ketakutan yang belum reda. Dan pemuda di dalam sana... ia tidak mengenal dunia ini, tidak memiliki siapa pun selain dua anak yang pertama kali ia selamatkan. Tugasmu bukan mengejar kabut di hutan, Kael... tugas terbesarmu adalah menjaga mereka."
+"Mira sedang berjuang merawat pemuda itu. Dan pemuda di dalam sana... ia tidak mengenal siapa pun selain kalian berdua yang ia selamatkan. Tugasmu bukan mengejar kabut di hutan, Kael... tugasmu adalah menjaga mereka."
 
-Kata-kata sang tetua menyentuh lubuk hati Kael yang paling dalam. Anak laki-laki itu terdiam membisu, menatap pintu bilik tempat sahabatnya dan sang penyelamat berada. Rasa kecewa karena tak bisa ikut berburu seketika luruh, berganti menjadi sebuah rasa tanggung jawab yang membakar dadanya dengan kebanggaan baru.
+Kata-kata sang tetua menyentuh hati Kael. Anak laki-laki itu terdiam menatap pintu bilik kayu. Rasa kecewa karena tak bisa ikut berburu perlahan luruh, berganti menjadi tekad tanggung jawab baru.
 
-"Dan mengenai pemuda yang kini terbaring di dalam kediamanku..." sang tetua kembali memandang seluruh warga di alun-alun, suaranya mengeras khidmat. "Ia adalah korban yang terluka parah saat mempertahankan tanah kita dari cakar makhluk itu. Ia tidak memiliki senjata, tidak membawa lencana kerajaan mana pun, dan kini raganya tengah berjuang melawan racun dingin kehampaan demi menyelamatkan nyawa cucuku dan putra pemburu kita. Jangan ada satu pun kata atau desas-desus tentang keberadaannya yang keluar melintasi batas pos jaga kerajaan perbatasan. Apakah kalian mengerti amanah ini?"
+"Dan mengenai pemuda yang kini terbaring di dalam rumahku..." sang tetua kembali memandang seluruh warga di alun-alun, suaranya berwibawa menuntut ketaatan. "Ia telah menumpahkan darah dan kekuatannya demi melindungi anak-anak kita dari cakar kehampaan. Kita berutang nyawa padanya. Jangan biarkan desas-desus liar keluar melewati batas desa hingga memancing telik sandi kadipaten datang mengobrak-abrik lembah damai kita. Siapa pun yang menyebarkan bualan tentang penyihir atau mata-mata ke luar lembah, ia sama saja mengundang pedang prajurit kerajaan ke leher keluarganya sendiri."
 
-"Kami mengerti, Tetua!" sahut para pria di alun-alun serempak. Wibawa luhur sang Tetua Desa yang menjadi penerus nilai-nilai kaum *The Remnant* berhasil meredakan badai kepanikan menjadi kewaspadaan yang tertib dan bersatu.
+Peringatan tegas itu membuat Doran dan Jarek saling melirik gugup. Ketakutan akan campur tangan militer kadipaten yang tamak jauh lebih menakutkan bagi para petani daripada merawat seorang pemuda terluka.
 
-"Pulanglah ke rumah masing-masing, nyalakan lentera di serambi, dan panjatkan doa perlindungan kepada Tuhan Semesta Alam yang memelihara bumi ini," ucap sang tetua seraya merapatkan kedua tangannya di depan dada. "Malam ini rimba sedang bergolak, namun selama kita memegang teguh amanah merawat tanah dan menjaga sesama, Sang Pencipta tidak akan membiarkan kegelapan menelan lembah kita."
+"Kami mengerti, Tetua," sahut beberapa pria tertua desa seraya mengangguk patuh.
 
-Warga desa perlahan membubarkan diri dengan langkah-langkah teratur, membagi giliran ronda malam dan membawa obor-obor mereka menyusuri pematang sawah menuju batas-batas pemukiman, dipimpin langsung oleh ayah Kael yang mulai mengatur formasi para pemburu.
+Namun Vane tidak ikut bersuara. Juragan kebun anggur itu hanya mengangguk masam, jemarinya mengetuk-ngetuk cincin perunggu tongkatnya seraya melirik curiga ke arah bilik kediaman Tetua. Ada ketidakpuasan yang tersimpan di balik matanya yang licin, namun di hadapan ketegasan Bran dan mandat Tetua, ia tahu bukan saatnya mendesak lebih jauh.
 
-Di alun-alun yang mulai lengang disapu kabut tipis dini hari, sang tetua memberi isyarat pelan kepada Kael. Bersama-sama, mereka berbalik melangkah menaiki undakan teras kediaman Tetua. Sang kakek mendorong daun pintu jati yang kokoh, lalu menutup dan menyekatnya rapat-rapat dari dalam—memisahkan kegaduhan lembah dari kesunyian sakral yang mendekap bilik belakang.
+"Pulanglah ke rumah masing-masing, nyalakan lentera di serambi, dan panjatkan doa perlindungan kepada Sang Pencipta," ucap sang tetua seraya merapatkan kedua tangannya di depan dada. "Malam ini rimba bergolak, namun selama kita memegang teguh amanah menjaga tanah dan sesama, kegelapan tidak akan menelan lembah kita."
+
+Warga desa perlahan membubarkan diri. Bran segera membagi regu patroli pertama dan membawa para pemburu berbaris menuju jalan setapak batas barat. Vane berbalik melangkah pergi diapit Doran, masih bergumam pelan di bawah desau angin malam.
+
+Di alun-alun yang mulai lengang, sang tetua memberi isyarat kepada Kael. Bersama-sama, mereka melangkah menaiki undakan teras kediaman Tetua. Pintu jati ditutup dan diselot rapat dari dalam, memisahkan desau angin lembah dari keheningan bilik belakang.
 
 Mereka melangkah melintasi serambi beralaskan papan kayu cemara yang dingin, menuju sebuah bilik kecil yang memancarkan pendar redup lampu minyak dan aroma rebusan herba penenang.
 
@@ -173,15 +175,13 @@ Seketika itu pula, jemari sang tetua mendadak kaku.
 
 Napas sang kakek tercekat di tenggorokan.
 
-Matanya yang renta melebar menatap pahatan wajah, lekuk tulang pipi, dan garis simetris proporsi tubuh sang pemuda. Ciri-ciri fisik yang teramat agung, murni, dan abadi... persis seperti yang tertulis dalam gulungan lisan nenek moyang kaum *The Remnant* tentang rupa Sang Utusan di era sebelum Hukuman Langit.
+Matanya yang renta melebar menatap pahatan wajah dan garis proporsi tubuh sang pemuda. Ciri-ciri fisik yang murni dan tak asing baginya... persis seperti penuturan gulungan lisan tertua tentang rupa Sang Utusan di era sebelum Hukuman Langit.
 
-Sang kakek menoleh memandang cucunya, Mira, yang sedang duduk bersimpuh memegangi tangan pemuda itu dengan penuh kehati-hatian, lalu beralih menatap Kael yang berdiri tegap di samping ranjang dengan sorot mata yang tak pernah lepas dari pemuda tersebut.
+Sang kakek menoleh memandang Mira yang duduk bersimpuh menggenggam jemari dingin pemuda itu dengan penuh kehati-hatian, lalu beralih menatap Kael yang berdiri tegap di samping ranjang menjaga keduanya.
 
-Kedua anak itu memandang sang pemuda dengan ketulusan yang teramat murni—menganggapnya semata-mata sebagai seorang kakak manusia biasa yang rapuh, terluka, dan membutuhkan pertolongan mereka.
+Sang tetua menarik napas panjang, menatap wajah pemuda itu dengan guratan kening yang makin berkerut dalam. Tangannya yang berurat gemetar halus saat membetulkan letak selimut wol di dada sang pemuda. 
 
-Sang tetua menarik napas panjang, menelan keterkejutan kosmis yang mengguncang dadanya. Ia tahu persis: jika rahasia ini bocor keluar, jika mata-mata kerajaan di seberang perbatasan atau para bangsawan kadipaten mencium keberadaan sosok berwujud Sang Utusan di desa terpencil ini, lembah damai mereka akan seketika terseret ke dalam neraka perang antar-kerajaan yang ingin merebut kekuatan purba ini.
-
-Sosok ini harus disembunyikan. Sosok ini harus dirawat, dijaga, dan diajari cara hidup sebagai manusia fana hingga ia benar-benar siap.
+Ada kesunyian berat yang mendekap pria tua itu—sebuah kesadaran dingin bahwa kedamaian lembah ini kini bertumpu pada seberapa rapat mereka membentengi pemuda asing ini dari mata dunia luar.
 
 "Kek..." suara Mira yang lirih membuyarkan lamunan sang kakek. "Apakah dia akan benar-benar selamat?"
 

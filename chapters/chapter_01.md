@@ -8,55 +8,51 @@ Di sudut bilik rumah panggung yang sederhana, sebutir lentera minyak menyala tem
 
 Pria tua itu tersenyum teduh. Jemarinya yang kasar namun hangat membelai pucuk kepala cucunya, lalu menuangkan sejumput rempah kering ke dalam mangkuk tanah liat.
 
-"Bukan sekadar menjejakkan kaki, cucuku," suara kakeknya bergetar rendah, berirama seperti dongeng pengantar tidur yang telah melintasi ratusan generasi. "Sang Utusan dirajut langsung dari hukum alam dunia ini—dari detak bumi Aethelgard itu sendiri. Berbeda dengan Sang Malaikat Agung yang diciptakan dari cahaya murni di langit tertinggi, Sang Utusan hadir membimbing manusia fana, membawa ilmu tatanan dan mengajarkan ketauhidan mutlak kepada Sang Pencipta."
+"Bukan sekadar menjejakkan kaki, cucuku," suara kakeknya bergetar rendah, berpadu dengan gesekan lesung kayu saat ia menumbuk rempah kering. "Sang Utusan dirajut dari detak bumi Aethelgard itu sendiri. Berbeda dengan Sang Malaikat Agung yang tercipta dari cahaya murni langit tertinggi, Sang Utusan hadir membimbing manusia fana dan mengajarkan ketundukan mutlak kepada Sang Pencipta."
 
-Mira mendekatkan dagunya ke lutut, membiarkan imajinasinya melayang jauh ke masa ribuan tahun silam. "Lalu... mengapa dunia lama itu hancur, Kek?"
+Mira memeluk lututnya lebih erat, menatap bayangan lentera yang bergoyang di dinding. "Lalu... mengapa dunia lama itu hancur, Kek?"
 
-Helaan napas sang tetua terasa berat, seolah memikul beban sejarah masa lampau yang telah mengabur menjadi mitos.
+Sang kakek meletakkan alu penumbuknya. Helaan napasnya berat, menatap sumbu lentera yang meliuk ditiup angin celah dinding.
 
-"Karena keangkuhan dan keserakahan manusia, Mira," jawab kakeknya lembut namun sarat kesedihan. "Peradaban lama tumbuh begitu megah dan makmur di bawah bimbingan Sang Utusan. Namun, seiring berjalannya waktu, hati manusia mulai tergelincir ke dalam keserakahan. Manusia saling berselisih, berebut kekuasaan, dan menumpahkan darah sesama. Bumi Aethelgard tercemar oleh perang saudara dan kerusakan yang diperbuat oleh tangan manusia itu sendiri."
+"Karena keserakahan manusia, Mira. Peradaban lama tergelincir ke dalam perebutan takhta dan menumpahkan darah sesama. Melihat bumi dicemari kezaliman, Sang Pencipta menitahkan Sang Malaikat Agung menjatuhkan Hukuman Langit—menyapu bersih kota-kota megah itu."
 
-Sang kakek memandang nyala sumbu lentera yang bergoyang pelan.
+"Tapi leluhur kita selamat..." bisik Mira.
 
-"Melihat bumi yang dirusak oleh kezaliman dan perselisihan yang tiada henti, Sang Pencipta menitahkan Sang Malaikat Agung turun menjatuhkan *Hukuman Langit*. Bencana dahsyat menyapu bersih kota-kota megah dan kebobrokan peradaban lama."
+"Sebab mereka menolak ikut merusak bumi," sang kakek tersenyum hangat, menatap lekat mata cucunya. "Mereka yang merawat tanah dan hidup dalam ketundukan murni dihindarkan dari malapetaka. Untuk itulah kita disebut *The Remnant*—kaum yang tersisa untuk menjaga napas kehidupan baru. Sedangkan mereka yang berselisih... konon Sang Utusan menempatkan mereka ke dimensi suaka bernama Vivarium agar benih manusia tidak punah."
 
-"Tapi kita selamat..." gumam Mira lirih.
+Sang kakek menepuk pelan bahu Mira seraya bangkit. "Sudah larut. Ingatlah selalu pesan leluhur: hormati tanah yang memberimu makan, sembahlah hanya Sang Pencipta, dan rawatlah sesamamu dengan kasih."
 
-"Benar," mata sang kakek memancarkan binar kebanggaan yang hangat dan khidmat. "Nenek moyang kita adalah orang-orang yang memegang teguh jalan luhur: mereka yang memilih menjaga alam, merawat bumi, dan hidup dalam ketundukan murni kepada Sang Pencipta. Ketika kaum yang berkuasa dibutakan oleh nafsu takhta dan menebarkan kehancuran, leluhur kita teguh menolak kezaliman itu. Barang siapa yang merawat tanah dengan penuh kasih dan tidak ikut berbuat kerusakan di muka bumi, merekalah yang dihindarkan dari Hukuman Langit. Untuk itulah kita disebut *The Remnant*—kaum yang tersisa; sisa-sisa jiwa terpilih yang dipercaya oleh langit untuk menjaga denyut kehidupan baru di bumi Aethelgard. Sementara mereka yang berselisih... konon dengan belas kasihnya yang agung, Sang Utusan memindahkan mereka ke sebuah dimensi suaka bernama Vivarium agar benih manusia tidak sepenuhnya punah."
+Tiupan pelan sang tetua memadamkan nyala sumbu lentera, menyisakan bara merah kecil sebelum ia melangkah keluar menutup pintu bilik.
 
-Sang kakek menepuk pelan bahu cucunya. "Sudah larut malam, Mira. Pejamkan matamu. Ingatlah selalu pesan leluhur: hormati tanah yang memberimu makan, sembahlah hanya Sang Pencipta Yang Tunggal, dan rawatlah sesamamu dengan kasih."
-
-Sang tetua meniup sumbu lentera hingga menyisakan bara merah kecil, lalu melangkah keluar menutup pintu bilik dengan rapat. 
-
-Bilik itu kini tenggelam dalam keremangan cahaya rembulan yang menembus kisi-kisi jendela kayu. Mira berbaring di pembaringan tipisnya, menarik selimut wol hingga ke dada. Di kepalanya, bayangan tentang malaikat bercahaya, bencana langit, dan dimensi Vivarium masih berpendar liar bagai mimpi.
+Bilik itu kini tenggelam dalam keremangan cahaya rembulan yang menembus kisi-kisi kayu. Mira menarik selimut wolnya, membiarkan kisah tentang langit dan dimensi asing itu berputar di kepalanya.
 
 *Tok. Tok. Tok.*
 
-Bunyi ketukan pelan dan berirama di daun jendela seketika membuyarkan lamunan Mira.
+Ketukan pelan di daun jendela seketika menghentikan lamunan Mira.
 
-Jantung gadis kecil itu tersentak. Ia menahan napas, mendengarkan dengan saksama. Ketukan itu terulang kembali, disusul oleh suara bisikan yang sangat ia kenali dari celah kayu.
+Jantungnya berdegup cepat. Disusul bisikan yang sangat ia kenali dari celah papan:
 
 "Mira! Pssst... Mira! Kau belum tidur, kan?"
 
-Mira bangkit perlahan, melangkah tanpa alas kaki melintasi lantai kayu yang dingin, lalu membuka kait jendela dengan hati-hati. 
+Mira melangkah tanpa alas kaki melintasi lantai papan yang dingin, lalu membuka kait jendela dengan hati-hati. 
 
-Di luar jendela, tergantung di dahan pohon apel tua di samping rumah panggungnya, wajah ceria seorang anak laki-laki tersenyum lebar diterpa sinar bulan. Rambut cokelatnya berantakan dan di punggungnya tergantung mantel kulit berburu. Itu Kael.
+Di dahan pohon apel tua di samping rumah panggungnya, wajah ceria seorang anak laki-laki tersenyum lebar diterpa sinar bulan. Rambut cokelatnya berantakan dan mantel kulit berburu tergantung miring di pundaknya. Itu Kael.
 
-"Kael?!" bisik Mira setengah panik seraya mencondongkan tubuhnya ke luar jendela. "Apa yang kau lakukan di sini tengah malam begini? Kalau Kakek atau Ayah bangun, kau bisa dihukum!"
+"Kael?!" bisik Mira setengah panik. "Tengah malam begini? Kalau Kakek atau Ayah bangun, kau bisa dihukum!"
 
-"Tenang, mereka semua sudah tidur pulas," Kael berbisik seru, matanya berbinar penuh rahasia besar. "Ayo ikut denganku ke Tebing Pinus sekarang juga!"
+"Tenang, mereka semua sudah tidur pulas," bisik Kael antusias seraya berpegangan pada dahan rendah. "Ayo ikut ke Tebing Pinus sekarang!"
 
-"Ke Tebing Pinus? Tengah malam begini? Kau sudah gila ya?"
+"Ke Tebing Pinus? Kau sudah gila?"
 
-"Dengarkan aku dulu, Mira!" Kael melompat turun dari dahan dengan kelincahan seekor kucing hutan, mendarat di teras gantung tanpa menimbulkan suara. Ia mendekatkan wajahnya dengan ekspresi sungguh-sungguh. "Ayah dan Ibu baru saja membicarakannya tadi petang saat membersihkan perangkap buru. Malam ini akan ada hujan bintang jatuh melintasi langit lembah kita!"
+"Dengarkan aku dulu, Mira!" Kael berayun turun dari dahan, mendarat di lantai teras dengan sedikit terhuyung sebelum lekas menyeimbangkan badannya. Napasnya memburu penuh rahasia. "Ayah dan Ibu membicarakannya tadi petang saat membersihkan perangkap buru. Malam ini ada hujan bintang jatuh melintasi langit lembah!"
 
-Mira mengerutkan kening. "Hanya karena bintang jatuh kau membangunkanku?"
+Mira mengerutkan kening. "Hanya karena bintang jatuh?"
 
-"Ini bukan bintang jatuh biasa!" nada bicara Kael sarat dengan kekaguman yang polos. "Ibu bilang, menurut dongeng para pemburu purba, bintang jatuh itu sesungguhnya adalah **malaikat yang sedang melintasi langit untuk membawa berita dan kabar bumi kepada Tuhan**. Dan Ayah bilang, kalau kita memanjatkan doa sambil menatap bintang jatuh itu, para malaikat akan mendengar suara kita dan membawanya langsung ke hadapan Sang Pencipta! Doa kita pasti dikabulkan!"
+"Ini bukan bintang jatuh biasa!" bisik Kael bersungguh-sungguh. "Ibu bilang, menurut dongeng para pemburu purba, bintang jatuh itu sesungguhnya malaikat yang sedang melintasi langit membawa kabar bumi kepada Tuhan. Dan Ayah bilang, kalau kita berdoa saat bintang jatuh melintas, para malaikat akan membawa doa kita langsung ke hadapan Sang Pencipta! Pasti dikabulkan!"
 
-Mata Kael menyala penuh harap. Kepolosan anak pemburu itu begitu tulus dan menggebu-gebu, memancarkan keyakinan murni yang tak ternoda oleh keraguan orang dewasa.
+Kael menggenggam kedua tinjunya di depan dada, matanya membulat lebar menatap langit malam dengan binar yang tak gentar. Ia bahkan sempat menatap ke timur—persis seperti kebiasaan yang diajarkan ibunya saat berdoa di ladang gandum.
 
-Mendengar kata *malaikat* dan *doa kepada Tuhan*, cerita sang kakek beberapa saat lalu kembali bergaung di benak Mira. Rasa takut akan malam perlahan terkikis oleh rasa takjub yang menular dari sahabatnya.
+Mendengar kata *malaikat* dan *doa kepada Tuhan*, penuturan sang kakek tadi kembali bergaung di benak Mira. Rasa takut akan dinginnya malam perlahan luruh oleh antusiasme sahabatnya.
 
 "Tapi... hanya sebentar saja, ya?" bisik Mira ragu. "Setelah melihatnya, kita harus langsung pulang."
 
@@ -100,19 +96,27 @@ Monster mengerikan itu belum pernah Kael lihat seumur hidupnya. Ayahnya adalah p
 
 Kobaran bola api ungu di atas pundaknya bergolak buas saat makhluk itu mendongak kaku, meraba udara dingin di puncak tebing seolah mengendus detak jantung kedua anak manusia di hadapannya.
 
-"Lari, Mira! Lari kembali ke desa!" teriak Kael histeris.
+"Lari, Mira! Cepat lari kembali ke desa!" seru Kael serak.
 
 Kael mencabut pisau buru tulangnya, melangkah maju dan membentangkan kedua tangannya di depan Mira. Tubuh anak laki-laki itu gemetar hebat menatap sosok ungu-kelabu yang menjulang di depannya, namun kedua kakinya mencengkeram batu cadas dengan keras kepala.
 
-"Tidak! Aku tidak mau meninggalkanmu!" jerit Mira menangis. Kakinya lemas bagai lumpuh. Hawa dingin mencekik yang dipancarkan makhluk itu membekukan udara di sekitar mereka hingga sulit bernapas.
+"Tidak! Aku tidak akan meninggalkanmu sendirian!" balas Mira dengan suara tercekat menahan tangis. 
 
-Makhluk ungu-kelabu itu menggeram parau dari kobaran api di rongga tubuhnya. Satu ayunan lengannya yang panjang dan retak menghempaskan dahan pinus hingga hancur berkeping-keping. Makhluk itu melompat menerjang ke depan dengan cakar ungu-kelabunya teracung lurus ke arah leher Kael.
+Meski lututnya gemetar lemas dihantam hawa beku yang mencekik tenggorokan, gadis kecil itu menolak lari. Jemarinya meraba permukaan cadas di samping kakinya, memungut sebongkah batu lancip seukuran kepalan tangan, lalu melemparkannya sekuat tenaga ke arah rongga dada berapi makhluk itu. 
+
+*Prak!*
+
+Batu itu membentur cangkang retak tanpa meninggalkan goresan berarti, namun cukup menarik perhatian monster tersebut.
+
+Makhluk ungu-kelabu itu menggeram parau dari kobaran api di rongga tubuhnya. Satu ayunan lengannya yang panjang dan retak menghempaskan dahan pinus hingga hancur berkeping-keping. Makhluk itu melompat menerjang ke depan dengan cakar ungu-kelabunya teracung lurus ke arah mereka berdua.
+
+"Kael, awas!" jerit Mira seraya menarik ujung mantel kulit Kael ke belakang.
 
 Malam itu, di atas kubah langit yang membentang luas, tidak ada sebutir pun bintang jatuh yang melintas. Langit malam tetap bisu, dingin, dan sunyi.
 
-Namun di hadapan maut yang hanya berjarak sejangkauan lengan, Kael tidak bergeming. Anak laki-laki itu tidak berteriak panik ataupun meratap putus asa. Walau kedua kakinya gemetar hebat, ia tetap berdiri tegak membentangkan badannya di depan Mira, mengacungkan pisau tulangnya dengan sorot mata yang tak gentar. Di dalam keheningan jiwanya yang paling dalam, sebuah doa murni dan kepasrahan mutlak terpaut kepada Sang Pencipta: tekat seorang anak manusia yang pantang mundur demi melindungi orang yang dikasihinya.
+Namun di hadapan maut yang hanya berjarak sejangkauan lengan, Kael kembali memasang badan. Anak laki-laki itu mengacungkan pisau tulangnya dengan sorot mata tak gentar. Di dalam keheningan jiwanya yang paling dalam, sebuah doa murni dan kepasrahan mutlak terpaut kepada Sang Pencipta: tekad seorang anak manusia yang pantang mundur demi melindungi orang yang dikasihinya.
 
-Dan seolah menjawab tekat tak tergoyahkan serta doa hening yang tak ternoda itu, tanah di bawah kaki mereka seketika menyahut.
+Dan seolah menjawab tekad tak tergoyahkan serta doa hening yang tak ternoda itu, tanah di bawah kaki mereka bergetar menyahut.
 
 Bukan gempa yang meremukkan batu cadas, melainkan denyutan hangat yang bergetar dari lapisan terdalam Tebing Pinus. Retakan-retakan kecil memancar di permukaan batu dan lumut. Dari celah-celah tersebut, muncullah semburan pendaran cahaya yang luar biasa mempesona.
 
@@ -124,7 +128,7 @@ Bola-bola api itu **dapat dilihat secara kasat mata oleh semua mata**. Warnanya 
 
 Kilatan cahaya putih-kebiruan itu melesat cepat melintasi pandangan mata Kael dan Mira—begitu menyilaukan, cepat, dan benderang di tengah kegelapan malam, hingga bagi kedua anak yang sejak tadi menantikan dongeng para pemburu, kilatan itu tampak persis seperti **sebutir bintang jatuh yang turun dari langit tepat ke hadapan mereka**.
 
-Hawa dingin kelam yang dibawa makhluk ungu-kelabu itu seketika tersapu bersih oleh gelombang kehangatan sakral yang meledak dari api putih-kebiruan tersebut.
+Hawa dingin kelam yang dibawa makhluk ungu-kelabu itu perlahan tersapu bersih oleh gelombang kehangatan sakral yang meledak dari api putih-kebiruan tersebut.
 
 Kael dan Mira ternganga terpaku. Bola-bola api Jantung Aethel itu membumbung ke udara lalu berpusar kencang tepat di antara mereka dan monster mengerikan itu. Lidah-lidah apinya memancarkan cahaya putih-kebiruan yang menyinari seluruh puncak Tebing Pinus layaknya fajar di tengah malam. Dari pusaran bola api putih berselubung semburat biru itulah, partikel-partikel cahaya memadat dengan kecepatan yang menakjubkan—membentuk kerangka tubuh, garis otot, dan raga seorang manusia dewasa muda.
 
@@ -144,70 +148,52 @@ Ia **memasang badannya** tepat di hadapan Kael dan Mira.
 
 Cakaran ungu-kelabu monster itu menghantam telapak tangan telanjang pemuda itu. Tabrakan antara hawa dingin kehampaan dan kekuatan cahaya hangat melepaskan gelombang kejut yang menghempaskan monster ungu-kelabu itu ke belakang hingga menghantam tebing batu pinus. Raungan melengking penuh kesakitan meledak dari kobaran bola api ungu di atas pundaknya sebelum tubuh cangkang itu pecah menjadi kabut abu keunguan yang melarikan diri ke dalam kegelapan rimba.
 
-Ancaman itu lenyap seketika, menyisakan keheningan yang membekukan darah.
+Ancaman itu sirna, menyisakan keheningan yang membekukan darah.
 
-Kael dan Mira masih terpaku kaku di tempat mereka. Telinga mereka berdenging dan benak mereka lumpuh oleh rasa syok yang luar biasa. Di hadapan kedua anak itu, pria muda tersebut hanya berdiri mematung tanpa bersuara sedikit pun—diam tak bergerak membelakangi mereka di tengah sisa kepulan abu yang perlahan menipis.
+Kael dan Mira masih terpaku di tempat mereka. Telinga mereka berdenging dan benak mereka diliputi keterkejutan mendalam. Di hadapan kedua anak itu, pria muda tersebut berdiri mematung tanpa bersuara sedikit pun—diam tak bergerak membelakangi mereka di tengah sisa kepulan abu yang perlahan menipis.
 
-Lalu, tanpa peringatan atau gerakan peralihan apa pun, tubuh tegak itu mendadak tumbang. Raga pria muda itu ambruk begitu saja ke atas batu cadas yang bertabur jarum pinus.
+Lalu, tanpa aba-aba, tubuh tegak itu limbung dan ambruk ke atas batu cadas yang bertabur jarum pinus.
 
-"Hei!" Kael tersentak dari rasa syoknya, pisau tulangnya terlepas dan jatuh berdenting ke batu.
+"Hei!" Kael tersentak, pisau tulangnya terlepas dan jatuh berdenting ke batu.
 
-Mira yang pertama kali tersentak dari rasa terpaku. Naluri peramu dan ketulusan batinnya mengalahkan rasa takut. Gadis kecil itu langsung berlari dan berlutut di samping tubuh pemuda asing yang tak bergerak itu. Jemarinya yang gemetar menyentuh pergelangan tangan sang pemuda, meraba denyut nadi di lehernya, lalu menempelkan telapak tangannya ke kening pemuda tersebut.
+Mira yang pertama kali bergerak. Naluri peramu dan ketulusan batinnya mengalahkan sisa rasa takut. Gadis kecil itu langsung berlutut di samping tubuh pemuda asing yang tak bergerak itu. Jemarinya yang gemetar menyentuh pergelangan tangan sang pemuda, meraba denyut nadi di lehernya yang teramat lemah, lalu menempelkan telapak tangannya ke keningnya yang dingin membeku.
 
-"Kael, napasnya sangat lemah! Tubuhnya dingin sekali!" seru Mira menangis panik. "Dia menyelamatkan kita, Kael... dia manusia biasa! Dia terluka dan pingsan karena menahan monster itu demi kita!"
+"Kael, napasnya sangat tipis! Tubuhnya membeku!" seru Mira menahan tangis. "Dia terluka karena melindungi kita, Kael... dia manusia biasa!"
 
-Kepolosan dan ketulusan masa kecil mereka tidak melihat sosok di hadapan mereka sebagai dewa atau entitas kosmis. Bagi Kael dan Mira, sosok yang terbaring kaku ini hanyalah seorang pemuda baik hati yang malang—seorang manusia biasa yang telah mempertaruhkan nyawanya demi melindungi mereka berdua.
+"Tunggu di sini, Mira! Jaga dia!" Kael menyeka keringat dingin di pelipisnya seraya berbalik menuruni lereng tebing. "Aku lari memanggil Ayah dan warga desa! Bertahanlah, Mira!"
 
-"Tunggu di sini, Mira! Jaga dia!" teriak Kael seraya berbalik dan melompat menuruni lereng tebing di tengah malam buta. "Aku akan lari ke rumah memanggil Ayah! Bertahanlah!"
+Langkah kaki Kael menghilang cepat ditelan pekatnya malam. Suara anak itu masih terdengar sayup memanggil-manggil nama Mira dari kejauhan lereng bukit.
 
-Langkah kaki Kael menghilang cepat ditelan pekatnya malam, meninggalkan Mira seorang diri di puncak Tebing Pinus yang sunyi dan membeku. Gadis kecil itu duduk bersimpuh di atas cadas, mendekap kepala pria muda itu di pangkuannya seraya menyelimutkan mantel wol kecil miliknya ke dada sang penyelamat yang kian dingin. Air mata Mira menetes jatuh ke pipi pucat pemuda tersebut.
+Kini tinggal Mira seorang diri di puncak Tebing Pinus. Gadis kecil itu duduk bersimpuh di atas cadas, mendekap kepala pria muda itu di pangkuannya seraya menyelimutkan mantel wol kecil miliknya ke dada sang penyelamat. Air mata Mira menetes jatuh ke pelipis pucat pemuda tersebut.
 
-Tepat di saat kesendirian dan ketakutan malam kian mencekam dadanya, jemari pria muda itu bergerak lemah di atas batu cadas. Kelopak matanya bergetar tipis. Dari bibirnya yang pucat pasi dan kaku, berhembus napas tersendat yang perlahan merangkai satu bisikan lirih—kata pertama yang pernah terucap dari raganya sejak terlahir ke dunia:
+Dalam remang kesadaran yang terkunci di batas maut, pemuda itu merasakan dua hal yang asing bagi wujud barunya: tetesan air hangat yang membasahi kulit pipinya, serta getaran suara yang berulang kali memanggil nama yang sama di tengah malam kelam.
+
+Jemari pria muda itu bergerak lemah di atas cadas. Kelopak matanya bergetar tipis. Dari bibirnya yang pucat pasi, terhembus napas tersendat yang merangkai satu bisikan lirih—kata pertama yang pernah terucap dari raganya:
 
 "...Mi... ra..."
 
-Napas Mira tercekat. Seluruh tubuhnya tersentak haru sekaligus takjub mendengar namanya sendiri meluncur dari bibir sang pemuda. Suara itu begitu serak dan parau, namun panggilan tersebut seketika mengalirkan kehangatan luar biasa yang meredakan rasa panik yang meremukkan batinnya.
+Napas Mira tercekat. Seluruh tubuhnya tersentak haru mendengar namanya sendiri meluncur dari bibir pemuda yang tak dikenalnya itu. Suara itu parau, namun sentuhan jemari dingin sang pemuda yang membalas genggamannya mengalirkan kehangatan yang mengusir dinginnya malam.
 
-"Iya... aku di sini!" bisik Mira terisak dengan seulas senyum lega yang merekah di sela air matanya. Gadis kecil itu menggenggam erat telapak tangan dingin pria muda itu dan mengusap pelipisnya dengan lembut, membujuknya agar tidak menyerah pada kegelapan. "Namaku Mira. Tolong bertahanlah... kumohon jangan pejamkan matamu dulu. Kael sedang lari memanggil bantuan warga desa. Ayah Kael dan para pemburu pasti segera tiba ke sini... kumohon bertahanlah..."
+"Iya... aku di sini," bisik Mira seraya mengusap pelipis pemuda itu dengan lembut. "Namaku Mira. Tolong bertahanlah... jangan pejamkan matamu. Kael sedang menjemput Ayahnya dan para pemburu desa... kumohon bertahanlah..."
 
-Pria muda itu tidak mampu membalas lagi; kelopak matanya kembali terpejam rapat saat raganya tergelincir jatuh ke dalam ketidaksadaran yang dalam. Namun, kehangatan tipis yang ia tinggalkan di jemari Mira memberi harapan bagi gadis kecil itu untuk terus mendekapnya di tengah embusan angin malam.
-
-Sementara itu, di bawah lereng bukit, Kael berlari kencang membelah kegelapan malam dengan kaki yang tergores semak berduri. Tiba di jalan setapak utama pemukiman, anak laki-laki itu berteriak kalap sekuat tenaga, memecah kesenyapan desa:
-
-"Tolong! Bangun semuanya, tolong! Ada monster di Tebing Pinus! Tolong Mira!"
-
-Jeritan histeris yang menggema di keheningan malam buta itu seketika menyentak seisi desa agraris. Satu demi satu jendela berderit terbuka, lentera minyak dinyalakan, dan anjing-anjing penjaga menyalak ribut. Mendengar kata *monster* dan mengetahui bahwa Mira—cucu sang Tetua Desa yang sangat mereka sayangi—sedang dalam bahaya maut, warga berhamburan keluar dari rumah mereka. Para petani dan pemburu berlarian ke jalanan dengan wajah tegang, membawa obor yang menyala buru-buru, kapak buru, garpu rumput, dan tongkat kayu.
-
-Pintu rumah Kael terbanting terbuka lebar. Ayahnya—seorang pemburu bertubuh liat dan kekar—muncul paling depan dengan obor berkobar di tangan kiri dan kapak buru terhunus di tangan kanan.
-
-"Kael! Apa yang terjadi?! Di mana Mira?!" seru sang ayah dengan rahang mengeras tegang.
-
-"Di Tebing Pinus, Ayah!" Kael terengah-engah, air mata ketakutannya tumpah saat menunjuk ke puncak bukit. "Ada monster ungu-kelabu yang tubuhnya terbakar api... ada pemuda asing yang menolong kami, tapi sekarang dia pingsan dan sekarat menahan serangan monster itu! Cepat, tolong mereka!"
-
-"Ayo semuanya, ke Tebing Pinus!" seru ayah Kael memberi aba-aba kepada warga desa.
-
-Tanpa membuang waktu sedetik pun, serombongan besar warga desa yang dipimpin oleh ayah Kael berlari kencang menembus kegelapan malam, menyusuri jalan setapak menanjak menuju Tebing Pinus dengan obor-obor yang berayun cepat laksana lautan api di lereng bukit.
-
-Tiba di puncak tebing, puluhan cahaya obor seketika menerangi pemandangan yang membuat seluruh warga desa terperangah ngeri. Batang pinus purba remuk berkeping-keping, tanah cadas hangus meninggalkan hawa dingin dan aroma abu mati yang menusuk hidung, sementara di tengah tebing, Mira kecil sedang menangis tersedu-sedu seraya mendekap kepala seorang pria muda asing yang terbaring pucat di pangkuannya.
-
-"Mira!" seru ayah Kael bergegas mendekat, diikuti para tetangga yang langsung membentuk barisan melingkar mengacungkan obor dan senjata ke arah kegelapan rimba untuk berjaga-jaga.
-
-"Paman, tolong dia..." isak Mira memohon dengan tatapan terluka, suaranya bergetar hebat. "Dia memasang badannya untuk melindungi kami... napasnya hampir putus..."
-
-Bisik-bisik keterkejutan seketika merebak di antara warga desa. Mereka menatap ngeri pada sisa hawa dingin di sekeliling tebing, lalu berpaling heran memandangi rupa pemuda asing yang terkapar tak berdaya—dengan helaian rambut putih bersemburat biru yang ganjil dan wajah yang sama sekali tidak mereka kenali.
-
-"Tenang, Mira, paman ada di sini," ayah Kael segera berlutut di samping tubuh pemuda itu. Jemari kasarnya memeriksa denyut nadi di leher sang penyelamat yang kian melemah dan dingin. Sebagai pemburu tangguh yang terbiasa memanggul beban berat di hutan, pria dewasa itu dengan sigap dan hati-hati mengangkat tubuh pria muda itu ke atas pundaknya yang kokoh.
-
-"Kita bawa dia ke kediaman Tetua sekarang juga!" seru ayah Kael lantang kepada seluruh warga. "Kakekmu yang paling tahu cara menangani luka dan racun rimba yang tak lazim, Mira!"
-
-Dikelilingi kobaran obor warga yang berbaris rapat mengamankan jalan, rombongan desa itu bergegas menuruni tebing di bawah taburan bintang malam, membopong raga sang pelindung menuju kediaman sang Tetua Desa di ujung lembah.
+Pria muda itu tidak mampu menjawab lagi; kelopak matanya kembali terpejam rapat saat raganya tergelincir ke dalam pingsan yang dalam.
 
 ---
 
-Tiba di pelataran rumah panggung berukir yang menghadap langsung ke alun-alun desa, sang Tetua Desa yang telah terjaga oleh kegaduhan malam segera menyambut mereka di ambang pintu. Tanpa membuang waktu sedetik pun, ayah Kael membopong tubuh pemuda pingsan itu melintasi serambi menuju bilik belakang, membaringkannya di atas pembaringan beralaskan selimut wol tebal. Mira yang matanya masih sembap langsung bergegas menyusul, mengambil mangkuk rebusan herba penenang dan kain kompres basah untuk mendampingi kakeknya menstabilkan napas sang penyelamat yang kian menipis.
+Tak lama berselang, derap langkah tergesa dan kilatan obor memecah kegelapan lereng bukit. Ayah Kael—Bran—muncul memimpin rombongan dengan kapak buru terhunus di tangan kanan.
 
-Namun di luar, puluhan warga yang berbondong-bondong membawa obor, kapak, dan garpu rumput sama sekali tidak membubarkan diri. Tanah lapang alun-alun di hadapan kediaman Tetua justru kian padat dan riuh oleh kepanikan yang mendidih. Aroma ketakutan dan pertanyaan yang tak terjawab menyebar cepat di antara para pembajak ladang dan pemelihara ternak.
+"Mira!" seru Bran bergegas mendekat, sementara para tetangga langsung membentuk barisan melingkar mengacungkan obor dan garpu rumput mengamankan batas rimba.
 
-Pintu kayu jati kediaman Tetua ditutup dari dalam demi memberi ketenangan bagi perawatan darurat sang pemuda, menyisakan Kael yang tertahan di teras luar dengan kedua lutut yang masih berlumur tanah cadas basah dan telapak tangan tergores semak duri.
+"Paman Bran, tolong dia..." isak Mira seraya menunjuk pemuda di pangkuannya. "Tubuhnya dingin sekali... napasnya hampir putus demi menahan makhluk itu..."
 
-Napas anak pemburu berusia dua belas tahun itu masih tersengal menahan getaran syok yang meremukkan dadanya. Namun sebelum ia sempat menenangkan diri, puluhan pasang mata orang dewasa di alun-alun seketika berbalik mengunci sosoknya. Sorotan puluhan obor yang berkobar menari liar di udara malam, menuntut pertanggungjawaban dan jawaban atas teriakan maut yang baru saja mengguncang kedamaian lembah mereka.
+Warga desa berbisik tegang menatap sisa abu keunguan di cadas tebing dan memandangi rupa pemuda asing berambut perak dengan semburat biru cerah yang terkapar pucat.
+
+"Tenang, Mira, paman ada di sini," Bran berlutut, memeriksa denyut nadi di leher pemuda itu dengan cepat. Tanpa membuang waktu, pemburu bertubuh kekar itu dengan hati-hati mengangkat tubuh pria muda itu ke atas pundaknya. "Kita bawa dia ke kediaman Tetua sekarang juga! Kakekmu yang paling paham ramuan penawar luka rimba!"
+
+Rombongan bergegas menuruni tebing di bawah kawalan obor yang menyala rapat.
+
+Tiba di alun-alun desa yang telah dipenuhi warga yang terbangun panik, Bran membopong pemuda pingsan itu langsung melintasi serambi kediaman Tetua menuju bilik belakang. Mira bergegas menyusul membawa baskom herba dan kain basah untuk mendampingi kakeknya yang telah menunggu dengan cemas.
+
+Pintu kediaman Tetua ditutup rapat dari dalam demi perawatan darurat, meninggalkan Kael yang terduduk di teras luar dengan lutut berlumur tanah cadas dan telapak tangan tergores semak duri. 
+
+Napas anak pemburu itu masih tersengal menahan syok. Namun sebelum ia sempat menenangkan diri, puluhan pasang mata warga desa di alun-alun telah berbalik menatapnya tajam di bawah sorotan obor—menuntut penjelasan atas teriakan monster yang baru saja mengguncang kedamaian lembah mereka.

@@ -68,76 +68,120 @@ Mira mengambil mangkuk tembikar itu, mengaduk isinya perlahan dengan sendok kayu
 
 "Ini air rebusan gandum dan herba penenang dari Kakek," ucap Mira seraya menyodorkan sesendok kaldu hangat ke depan bibir pemuda itu. "Kau butuh tenaga. Ayo, minumlah sedikit demi sedikit."
 
-Pemuda itu menatap sendok kayu tersebut dengan ragu. Sepanjang eksistensinya yang purba, ia tidak pernah membutuhkan makanan. Namun saat cairan hangat itu menyentuh lidahnya, ada rasa gurih, manis, dan panas yang menjalar lembut menuruni kerongkongannya, mengalirkan kehangatan nyata ke seluruh rongga tubuhnya yang kaku. Rasa lapar fisik—sebuah dorongan primitif manusia—terpuaskan untuk pertama kalinya.
+Pemuda itu menatap sendok kayu tersebut dengan ragu. Sepanjang kesadarannya, ia tidak pernah mengenal rasa lapar atau keharusan menelan zat asing. Jemarinya yang gemetar mencoba meraih tangkai sendok itu sendiri, namun saraf-saraf barunya belum terbiasa mengukur cengkeraman; sendok itu miring dan sedikit kuah hangat tumpah membasahi selimut wolnya.
 
-Mira tersenyum tipis melihat pemuda itu menelan suapan demi suapan dengan patuh. "Bagus... pelan-pelan saja."
+Mata pemuda itu membelalak tegang, menatap tetesan kuah itu seolah ia baru saja melakukan kesalahan besar.
 
-"M... Mi... ra..." desis pemuda itu susah payah, tenggorokannya yang serak bergetar membentuk getaran vokal yang patah.
+"Tidak apa-apa," bisik Mira cepat seraya tersenyum menenangkan. Dengan cekatan ia menyeka tumpahan itu dengan ujung kain lap. "Jemarimu masih kaku. Biar kubantu dulu, ya?"
 
-Mata Mira berbinar haru mendengar namanya diucapkan kembali, meski terbata-bata. "Iya, ini aku. Kau aman di sini. Ini rumah kakekku, Tetua Desa. Tidak ada yang akan menyakitimu."
+Ketika cairan hangat itu akhirnya menyentuh lidahnya, ada rasa gurih, manis, dan aroma rempah yang menjalar lembut menuruni kerongkongannya. Kehangatan itu mengalir perlahan ke rongga dadanya, mengusir sisa dingin yang membeku di persendian. Tubuh fananya menelan zat cair itu dengan rasa takjub yang murni.
 
-Tepat saat Mira hendak menyuapkan sendok ketiga, suara derap langkah kaki tergesa-gesa terdengar menggedor lantai papan di luar bilik. Pintu yang sedikit terbuka tiba-tiba terdorong lebar dengan suara debum keras.
+"M... Mi... ra..." bisiknya parau, lidahnya yang berat berusaha mengunci bentuk suara itu.
+
+Mata Mira berbinar haru. "Iya, ini aku. Kau aman di sini. Ini rumah kakekku, Tetua Desa. Tidak ada yang akan menyakitimu."
+
+Tepat saat mangkuk tembikar itu kosong, derap langkah tergesa-gesa terdengar menggedor lantai papan di luar bilik. Pintu yang sedikit terbuka terdorong lebar dengan suara debum keras.
 
 "Mira! Apa dia sudah—astaga, dia benar-benar sudah melek!"
 
-Seorang anak laki-laki seusia Mira melompat masuk ke dalam ruangan. Rambutnya yang sedikit acak-acakan berhias daun pinus kering, napasnya memburu, dan pakaian berburunya kotor oleh tanah basah. Di pinggangnya terselip sebilah pedang kayu latihan yang ujungnya tergores-gores.
+Kael melompat masuk ke dalam ruangan. Rambut cokelatnya acak-acakan berhias daun pinus kering, napasnya memburu, dan pakaian berburunya kotor oleh tanah basah. Di pinggangnya terselip sebilah pedang kayu latihan yang ujungnya gompal.
 
-"Kael!" tegur Mira dengan nada tegas, memelototkan matanya seraya meletakkan mangkuk kaldu kembali ke meja. "Berapa kali kubilang jangan membuka pintu seperti mendobrak kandang babi? Dia baru saja siuman!"
+"Kael!" tegur Mira tegas seraya meletakkan mangkuk kosong ke meja. "Berapa kali kubilang jangan membuka pintu seperti mendobrak kandang lembu? Dia baru saja siuman!"
 
-Anak laki-laki bernama Kael itu sama sekali tidak ciut oleh omelan Mira. Dengan senyum lebar yang memamerkan deretan giginya yang rapi, ia menghambur ke tepi dipan, mencondongkan tubuhnya ke arah pemuda berambut putih tersebut dengan tatapan kagum yang meluap-luap.
+Kael sama sekali tidak ciut. Dengan cengiran lebar, ia menghambur ke tepi dipan, mencondongkan tubuhnya ke arah pemuda berambut putih tersebut dengan tatapan kagum yang meluap-luap.
 
-"Hei! Kau bisa mendengarku, kan, Kak?" seru Kael antusias, matanya berbinar menatap wajah pemuda itu dari jarak dekat. "Semalam kau hebat sekali! Kau berdiri di depanku dan Mira waktu monster abu-abu itu mengayunkan cakarnya! Tapi setelah itu kau langsung ambruk seperti batang kayu tumbang. Ayahku yang membopongmu sepanjang jalan ke sini!"
+"Hei! Kau bisa mendengarku, kan, Kak?" seru Kael antusias. "Semalam kau luar biasa! Kau berdiri tepat di depanku dan Mira waktu monster abu-abu itu mengayunkan cakar! Tapi setelah itu kau langsung ambruk seperti batang kayu tumbang. Ayahku yang membopongmu sepanjang jalan ke sini!"
 
-Pemuda itu berkedip perlahan, sedikit tersentak oleh luapan energi anak laki-laki di hadapannya.
+Pemuda itu berkedip perlahan, tersentak oleh gelombang energi anak laki-laki di hadapannya.
 
-"Kael, minggir sedikit! Kau membuatnya sesak napas!" Mira menarik ujung rompi kulit Kael agar memberi jarak.
+"Kael, minggir sedikit! Kau membuatnya sesak napas!" Mira menarik ujung rompi kulit Kael.
 
-"Aku cuma mau melihat keadaannya, Mira!" bela Kael seraya menepuk gagang pedang kayu di pinggangnya dengan bangga. "Dengar ya, Kak! Ayahku sekarang ditunjuk jadi ketua patroli hutan oleh Tetua. Dan mulai pagi ini, Ayah melatih kami para pemuda desa di lapangan barat! Aku belajar menangkis dan menusuk!"
+"Aku cuma mau melihat keadaannya, Mira!" bela Kael seraya menepuk pedang kayunya. "Dengar ya, Kak! Ayahku sekarang ditunjuk jadi ketua patroli hutan oleh Tetua. Dan mulai pagi ini, Ayah melatih kami para pemuda desa di lapangan barat! Aku belajar menangkis dan menusuk!"
 
-Kael mundur selangkah, lalu memamerkan kuda-kuda bertarung dengan pedang kayunya. Gerakannya masih mentah dan berlebihan, khas anak-anak yang meniru para kesatria di dongeng, namun sorot matanya menyala dengan tekad yang tulus.
+Kael mundur selangkah, memamerkan kuda-kuda bertarung dengan pedang kayunya. Gerakannya masih mentah dan berlebihan, khas anak pemburu yang berangan-angan menjadi kesatria, namun sorot matanya menyala dengan ketulusan yang membakar.
 
-"Jadi kau tidak perlu takut lagi!" lanjut Kael dengan dada membusung penuh keyakinan. "Kakek bilang tugas utamaku adalah menjaga kalian berdua. Selama kau belum bisa bicara atau berjalan normal, aku yang akan jadi pedang dan perisaimu! Monster bertanduk atau bertangan api ungu itu harus melangkahiku dulu sebelum bisa menyentuh bilik ini!"
+"Jadi kau tidak usah cemas lagi!" lanjut Kael dengan dada membusung. "Kakek bilang tugas utamaku adalah menjaga kalian berdua. Selama kau belum pulih, aku yang akan jadi pedang dan perisaimu! Monster apa pun harus melangkahiku dulu sebelum bisa mendekati bilik ini!"
 
-Melihat kepolosan dan keberanian anak pemburu itu, sesuatu yang beku di dalam dada sang pemuda mencair. Di dalam ingatan purbanya, manusia selalu memandang wujudnya dengan rasa gentar, ketundukan yang kaku, atau permohonan yang sarat akan pamrih. Namun dua anak ini... mereka menatapnya bukan sebagai utusan surgawi atau entitas penjaga hukum semesta. Bagi mereka, ia hanyalah seorang kakak asing yang lemah, tak berdaya, dan perlu dilindungi dari kerasnya dunia.
+Melihat celoteh anak pemburu itu, sesuatu yang beku di dalam dada sang pemuda mencair. Di dalam ingatan berkabutnya, manusia fana selalu bersujud dalam rasa gentar atau ketakutan. Namun dua anak ini... mereka menatapnya bukan sebagai sesuatu yang menakutkan atau suci. Bagi mereka, ia hanyalah seorang kakak asing yang lemah, terluka, dan membutuhkan perlindungan mereka.
 
-Sebuah sudut bibir pemuda itu bergetar samar, membentuk kurva senyum tipis pertamanya di dunia fana.
+Ujung bibir pemuda itu bergetar samar, membentuk kurva senyum tipis pertamanya di dunia fana.
 
 "Lihat, Mira! Dia tersenyum padaku!" pekik Kael girang.
 
-"Tentu saja dia tersenyum, melihat tingkah konyolmu," sahut Mira geleng-geleng kepala, namun senyum geli tak urung merekah di wajah dewasanya.
+"Tentu saja dia tersenyum melihat tingkah konyolmu," sahut Mira seraya menahan tawa.
 
 ***
 
-Hari-hari berikutnya bergulir laksana alunan lagu rakyat yang tenang di lembah terpencil itu.
+Keesokan harinya, ketika matahari pagi mulai menyiram lantai kayu bilik dengan cahaya keemasan, pemuda itu memutuskan untuk tidak lagi berbaring.
 
-Sang Tetua Desa—seorang pria tua berjanggut putih panjang dengan tatapan mata yang dalam dan teduh—kerap berkunjung ke bilik tersebut setiap matahari terbit dan tenggelam. Kakek Mira itu tidak pernah menanyakan masa lalu atau hakikat dirinya. Dengan kelembutan seorang kakek, ia duduk di samping dipan, menepuk pundak sang pemuda dan memanggilnya dengan sebuah nama baru yang diucapkan dengan takzim:
+Ia menurunkan kedua kakinya dari tepi dipan. Saat telapak kaki telanjangnya menyentuh papan cemara yang dingin, sengatan lantai kayu itu membuat bulu kuduknya meremang. Ia menarik napas, bertumpu pada kedua lututnya, lalu mencoba berdiri.
 
-*"Azariel... Pertolongan Tuhan bagi tanah yang terluka."*
+Namun gravitasi bumi dan kerapuhan tulang fana menyadarkannya dengan keras.
 
-Nama itu meresap ke dalam jiwanya, menjadi jangkar baru bagi eksistensinya yang sempat tercerai-berai. Di dunia fana ini, ia adalah Azariel.
+Kedua lututnya lemas seketika. Tubuhnya limbung ke depan. 
 
-Dari beranda belakang rumah Tetua tempat ia mulai diizinkan duduk menikmati udara segar, Azariel mengamati denyut kehidupan desa agraris yang bersahaja.
+Untunglah tangannya sempat mencengkeram tepi meja bundar kayu sebelum ia mencium lantai. Napasnya memburu, keringat dingin membasahi pelipisnya. Berdiri tegak—sesuatu yang tampak begitu mudah bagi Kael dan Mira—ternyata menuntut koordinasi rumit dari setiap urat dan sendi.
 
-Setiap pagi, ia melihat seorang pria paruh baya bertubuh liat dan berkulit gelap terpanggang matahari—ayah Mira. Pria petani gandum itu melangkah keluar ke ladang dengan memikul cangkul dan sabit. Sebelum berangkat, sang ayah selalu menyempatkan diri mengusap rambut Mira dengan penuh kasih, membisikkan pesan agar putrinya tidak terlalu memforsir diri merawat pasien, lalu melambaikan tangan dengan senyum tulus yang canggung ke arah Azariel di beranda. Tidak ada ambisi takhta atau intrik kekuasaan pada diri pria itu; hidupnya tercurah murni untuk merawat bumi dan menjaga putri semata wayangnya yang tumbuh tanpa pelukan seorang ibu.
+Di atas meja kecil itu, bertengger sebuah baskom tembikar berisi air bersih.
 
-Jauh di batas desa sebelah barat, gaung latihan keras terdengar membelah kesunyian rimba pinus.
+Pemuda itu mencondongkan wajahnya, menatap ke dalam permukaan air yang tenang.
 
-Dari kejauhan, Azariel dapat melihat sosok Bran—ayah Kael. Pemburu kawakan itu berdiri kokoh dengan instruksi-instruksi bernada tegas dan terukur. Cara Bran memegang tombak kayu, formasi langkahnya yang mantap saat melatih para pemuda desa, serta tatapan matanya yang awas membaca arah angin memancarkan wibawa yang jauh melampaui pemburu biasa. Di bawah bimbingan keras sang ayah, Kael berlatih tanpa kenal lelah; terjatuh ke lumpur, bangkit kembali sambil meringis, lalu mengayunkan pedang kayunya berulang-ulang hingga matahari tepat berada di atas kepala.
+Untuk pertama kalinya, ia melihat rupa dirinya sendiri.
 
-Dan di samping Azariel, kehidupan kecilnya berputar di sekitar Mira.
+Sepasang mata yang memancarkan pendar redup putih kebiruan menatap balik ke arahnya. Wajahnya bersih tanpa noda debu, dengan lekuk simetris yang asing bagi rakyat lembah. Dan helaian rambutnya... terurai putih keperakan dengan semburat biru cerah di tiap ujungnya, persis seperti lidah api yang menari di Tebing Pinus.
 
-Gadis itu tidak pernah membiarkannya merasa terasing. Sambil menumbuk herba kering di dalam lesung batu kecil, Mira dengan sabar mengajarkan nama-nama benda di sekeliling mereka.
+Ia menyentuh helaian rambutnya sendiri dengan jemari gemetar. 
 
-"Ini daun *Salvia*, untuk meredakan demam," tunjuk Mira pada sejumput daun perak kering. "Coba tirukan, A-za-ri-el... *Da-un*."
+Ia tahu ia berbeda dari Kael yang berambut cokelat gelap atau Mira yang bermata cokelat teduh. Namun di balik keasingan itu, tidak ada rasa ngeri yang terpancar di rumah ini; hanya ada penerimaan yang tulus.
 
-"Da... un..." gumam Azariel, menirukan artikulasi bibir gadis itu dengan sungguh-sungguh.
+"Azariel..."
 
-"Pintar sekali," puji Mira seraya tersenyum bangga, menyeka butir keringat di dahi pemuda itu dengan kain bersih.
+Sebuah suara lembut menyapa dari ambang pintu. 
 
-Tidak berhenti pada tuturan lisan, ketika Mira menyadari tatapan lekat Azariel pada tumpukan catatan kuno milik kakeknya, gadis itulah yang pertama kali mengajarinya membaca aksara Aethelgard. Dengan arang kayu di atas serpihan kulit kayu birch, Mira menggambar bentuk-bentuk huruf satu per satu. Pikiran Azariel—yang sejatinya dirajut dari tatanan kosmis—menyerap setiap lambang dan tata bahasa dengan kecepatan luar biasa. Membaca lembaran buku seketika menjadi jendela terbesarnya untuk memahami sejarah, geografi, dan kehangatan dunia fana; sebuah hobi hening yang kelak menjadi bagian tak terpisahkan dari hari-harinya di lembah.
+Sang Tetua Desa berdiri di sana dengan tongkat pinusnya, tersenyum hangat melihat pemuda itu telah mampu menjejakkan kaki ke lantai. Pria tua itu melangkah mendekat, membantu memapah lengannya yang masih lemah untuk melangkah perlahan menuju beranda belakang rumah panggung.
 
-Ketika senja turun dan semburat jingga keemasan mewarnai pucuk-pucuk pohon pinus purba, Kael akan berlari pulang dengan napas terengah-engah dan memar di sikunya, membawa sebakul buah beri hutan atau ikan air tawar hasil tangkapannya di sungai. Mereka bertiga akan duduk di beranda; Mira merawat goresan luka di lengan Kael seraya mengomelinya pelan, Kael berceloteh riang tentang teknik tangkisan baru yang diajarkan ayahnya, sementara Azariel duduk tenang di antara mereka, mendengarkan celoteh hangat tersebut sambil merasakan semilir angin pegunungan.
+"Perlahan, anakku," bisik sang tetua lembut. "Tanah ini butuh waktu untuk kau kenali, dan ragamu butuh waktu untuk belajar bernapas."
 
-Mimpi buruk tentang langit putih yang membakar dan penghakiman sayap-sayap cahaya itu masih ada, terkubur jauh di dalam relung memorinya yang terkunci. Namun saat menatap tawa lepas Kael dan keteduhan mata Mira di bawah cahaya temaram lentera minyak, Azariel menyadari sesuatu yang baru di dalam dadanya.
+Hari-hari berikutnya bergulir dengan tenang.
 
-Mungkin, menjadi fana bukanlah sebuah kehancuran. Di balik kerapuhan daging dan darah manusia, ada kehangatan bara kecil yang tidak akan pernah bisa dipadamkan oleh dinginnya hukum semesta manapun. Dan untuk bara kecil itulah, raganya memilih bangkit kembali.
+Dari beranda belakang, Azariel mulai menyaksikan denyut kehidupan desa agraris. 
+
+Setiap pagi, ia melihat ayah Mira—seorang petani gandum bersahaja dengan kulit terbakar matahari—melangkah keluar ke ladang memikul cangkul. Pria itu selalu mengusap kepala Mira dengan penuh kasih sebelum berangkat, lalu melambaikan tangan dengan senyum tulus yang canggung ke arah Azariel di beranda. 
+
+Di batas barat, gaung latihan keras Bran memecah kesunyian rimba pinus. Dari kejauhan, Azariel melihat Kael jatuh bangun di atas tanah lumpur, menangkis ayunan tongkat kayu sang ayah hingga sikunya membiru, lalu bangkit lagi dengan cengiran keras kepala.
+
+Dan di sampingnya, Mira selalu ada.
+
+Gadis itu tidak pernah membiarkannya merasa terasing. Sambil menumbuk daun obat di lesung batu kecil, Mira mengajarkan nama-nama benda.
+
+"Ini daun *Salvia*, untuk demam," tunjuk Mira pada sejumput daun perak kering. "Coba tirukan... *Da-un*."
+
+"Da... un..." gumam Azariel sungguh-sungguh.
+
+"Bagus sekali," puji Mira tersenyum bangga.
+
+Tidak berhenti pada tutur lisan, ketika Mira menyadari tatapan lekat Azariel pada tumpukan catatan kuno kakeknya, gadis itulah yang mengambil serpihan kulit kayu birch dan arang.
+
+"Ini huruf pembuka aksara Aethelgard," tutur Mira seraya menorehkan tiga lambang pertama dengan hati-hati. "Bentuknya seperti cabang pohon gandum. Dulu aku butuh dua pekan penuh hanya untuk mengingat sepuluh aksara pertama."
+
+Azariel menatap goresan arang hitam itu. Dalam hening, jemarinya meraih bilah arang dari tangan Mira. Tangannya masih menyisakan getaran halus, namun dengan gerakan mantap dan tanpa ragu, ia menorehkan sepuluh aksara berikutnya di atas kulit kayu—sempurna dan presisi, seolah lambang-lambang itu sekadar mengingatkannya pada tatanan yang telah lama ia kenal.
+
+Mira menahan napas, matanya membelalak menatap deretan aksara tersebut.
+
+"Kak Azariel..." bisik Mira tercekat takjub seraya mendongak menatapnya. "Kau... kau langsung bisa mengingat semuanya dalam sekejap mata?"
+
+Azariel meletakkan arang itu perlahan, lalu menatap Mira dengan sorot mata yang meminta maaf, seolah khawatir kelebihannya akan membuat gadis itu takut. Namun Mira justru tertawa renyah, menggeleng kagum seraya merapikan lembaran kulit kayu itu.
+
+"Kalau begitu, besok kubawakan buku kronik kuno milik Kakek dari lemari tengah!" serunya riang.
+
+Ketika malam turun dan angin pegunungan bertiup dingin, mimpi tentang langit putih yang membakar itu kerap kembali menyentak kesadaran Azariel.
+
+Namun saat pemuda itu tersentak bangun dengan napas tertahan di tengah gulita malam, yang pertama kali ia lihat bukanlah kehancuran kosmis.
+
+Di samping dipannya, Mira tertidur pulas di atas bangku kayu berkaki tiga dengan kepala bersandar di tepi kasur jerami. Kain lap kompres basah masih tergenggam erat di jemari kecilnya yang letih setelah seharian merawatnya.
+
+Azariel terdiam lama menatap punggung kecil itu di bawah keremangan cahaya rembulan. 
+
+Pelan-pelan, tanpa menimbulkan derit lantai kayu, Azariel bangkit dari pembaringannya. Dengan kedua tangannya yang kini telah mampu bergerak mantap, ia meraih selimut wol tebal yang tersingkap dari tubuhnya, lalu menyelimutkannya dengan sangat hati-hati ke pundak gadis kecil yang tertidur itu.
+
+Di luar jendela bilik, embusan angin pegunungan mendesah lirih, membiarkan kehangatan kecil itu terjaga dalam diam.
